@@ -72,7 +72,7 @@
 <p>       互联网是一个开放的世界；诞生互联网的时代，也必然是、必须是一个开放的时代。任何封锁、阉割，都在提醒着人们，极权的罪恶有多么广泛，也在强调着对自由的追求是多么迫切。泡泡网致力于互联网的开放和自由，这是我们的目标，也是我们的信仰。<strong>自由是我们击败极权的最丰厚的战利品</strong><strong>——</strong><strong>我们不幸生活在极权统治的时代，我们也有幸生活在与它战斗的时代，翻墙是你的态度、梯子是你的武器，被高墙囚禁的朋友们，请不要辜负这个时代赋予你们的抗争的责任。</strong></p>
 <p>       泡泡君为你梳理出2014年中国互联网审查大事记。希望大家不要忘记那些因言获罪的人，那些层出不穷的禁令和接二连三<a href="https://pao-pao.net/node/325" rel="nofollow">“被消失”的网站</a>，不要忘记那些本该属于我们的权利和自由。</p></p>
 <p>
-	<small> ============== 20天前</small>
+	<small> ============== 21天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/566" target="paopao-mirror">给两位诺贝尔和平奖得主的一副画</a>
 </h2>
@@ -151,7 +151,7 @@
 <p><em>本文来源于<a href="http://fusion.net/story/132931/if-you-use-the-internet-you-need-a-vpn-heres-why/?utm_source=facebook&utm_medium=social&utm_campaign=fusion&utm_content=link" rel="nofollow">Fushion</a>，中文版由泡泡编译</em></p>
  </div></div></div><div><div>Image: </div><div><div><img typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/vpn.jpg" width="640" height="395"></div></div></div><div><div>Tags: </div><div><div><a href="https://pao-pao.net/tags/52" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">VPN</a></div><div><a href="https://pao-pao.net/tags/16" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">网络安全</a></div><div><a href="https://pao-pao.net/tags/94" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">加密</a></div></div></div></p>
 <p>
-	<small> ============== 24天前</small>
+	<small> ============== 25天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/474" target="paopao-mirror">打赏功能和言论自由</a>
 </h2>
