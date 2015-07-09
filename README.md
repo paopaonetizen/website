@@ -19,10 +19,11 @@
         src="../../raw/master/x/paopao.qr.png" /></a></td>
                 
                 <td></td>
-        
             </tr>
     
-    </table>
+    
+            </tr>
+</table>
 <h2>
 	<a href="https://pao-pao.net/article/586" target="paopao-mirror">自我审查比审查更可怕</a>
 </h2>
@@ -565,12 +566,8 @@
         src="https://raw.githubusercontent.com/greatfire/images/master/paopao.qr.png" /></a></td>
                 
                 <td></td>
-        
             </tr>
     
-    </table>
-
-## 免翻墙镜像:
-
-<ul>
-</ul>
+    
+            </tr>
+</table>
