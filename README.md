@@ -19,9 +19,8 @@
         src="../../raw/master/x/paopao.qr.png" /></a></td>
                 
                 <td></td>
-            </tr>
-    
-    
+                
+        
             </tr>
 </table>
 <h2>
@@ -566,8 +565,7 @@
         src="https://raw.githubusercontent.com/greatfire/images/master/paopao.qr.png" /></a></td>
                 
                 <td></td>
-            </tr>
-    
-    
+                
+        
             </tr>
 </table>
