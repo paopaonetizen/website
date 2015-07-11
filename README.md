@@ -235,7 +235,7 @@
 <div>但国际特赦的William Nee告诉法新社，这份白皮书在某些领域，尤其是言论自由、市民社会和少数民族权益保护等方面，提供的信息与现实不相符。</div>
  </div></div></div><div><div>Image: </div><div><div><img typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/liuxiaoyuan.jpg" width="640" height="480"></div></div></div><div><div>Tags: </div><div><div><a href="https://pao-pao.net/tags/46" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">微博</a></div><div><a href="https://pao-pao.net/tags/23" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">网络审查</a></div><div><a href="https://pao-pao.net/tags/139" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">六四</a></div><div><a href="https://pao-pao.net/tags/71" typeof="skos:Concept" property="rdfs:label skos:prefLabel" datatype="">维权者</a></div></div></div></p>
 <p>
-	<small> ============== 32天前</small>
+	<small> ============== 33天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/465" target="paopao-mirror">书评：《无处可藏：爱德华·斯诺登、美国国安局和监控国家》</a>
 </h2>
