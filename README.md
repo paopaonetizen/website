@@ -421,7 +421,7 @@
 <div><img src="http://mmbiz.qpic.cn/mmbiz/icsn1Zo6n6c26VeIJQ8T8j76bafOmUdeicfrez6ia4hXfzD3eN9KFOY94nkOuKhOlIp1pUm1erbkyTx9Lia3IXvdTQ/0?wx_fmt=jpeg"></div>
 <div> </div></p>
 <p>
-	<small> ============== 62天前</small>
+	<small> ============== 63天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/468" target="paopao-mirror">今年最受网友欢迎的六四贴纸：“自由64”</a>
 </h2>
@@ -449,7 +449,7 @@
 <h2><strong>外交部被记者问何时正视六四历史</strong></h2>
 <p>外交部发言人华春莹表示，发生于上世纪八十年代末的政治风波，党和政府已经给予明确的结论。她指中国过去三十年改革开放的成功，充份证明中国选择的道路正确，获全体中国人民真心拥护。<br><br>在场有西班牙记者问华春莹，中国要求日本正视侵华历史，以免重蹈覆辙，那中国何时才能正视六四事件的历史。华春莹批评记者的逻辑，指日本发动侵略战争于国际社会早有公论，两件事性质完全不同。<br><br>华春莹又就前国家总理李鹏病危报道作回应，她指有关问题非外交问题，非是她职权内可回应。<br><br><em>本文授权转载自<a href="http://www.inmediahk.net/node/1034857" rel="nofollow">香港独立媒体</a></em></p></p>
 <p>
-	<small> ============== 63天前</small>
+	<small> ============== 64天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/466" target="paopao-mirror">“六四红包”与“蜡烛表情”的猜想</a>
 </h2>
