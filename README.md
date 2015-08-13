@@ -59,7 +59,7 @@
 <p><span><span><img src="https://lh6.googleusercontent.com/P4YSHjhHeLVUUnsoRX6azFIkIzAC7TLD5vth5qKUmNJADgvgwfwDsp57X2mKiUwGy2eDM0VbHcnE2qSZM6IOqHUzFi5PyC2CsZiLkU8yMQanzFoCLGX8kNZ3IwVe9toJtWlrZ6w"></span></span></p>
 <p> </p></p>
 <p>
-	<small> ============== 30天前</small>
+	<small> ============== 31天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/586" target="paopao-mirror">自我审查比审查更可怕</a>
 </h2>
