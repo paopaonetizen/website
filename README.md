@@ -254,7 +254,7 @@
 <p>最后，普及一下PGP的使用方法：它是跨平台的加密程序，很多Linux发行版自带GPG，windows版可以去这里<a href="http://www.gpg4win.org/" target="_blank" rel="nofollow">下载</a>，教程在<a href="http://www.williamlong.info/archives/3439.html" target="_blank" rel="nofollow">这里</a>。</p>
 <p><em>本文经授权转载自<a href="https://plus.google.com/+GhostAssassin/posts/cjyxwgVKmVQ" rel="nofollow">Phantom Knight</a></em><em>的博客，刊发时经过编辑。</em></p></p>
 <p>
-	<small> ============== 103天前</small>
+	<small> ============== 104天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/471" target="paopao-mirror">FemHack与淘宝女店长：规则制造者与经营者之别</a>
 </h2>
