@@ -118,7 +118,7 @@
 <p>一名中国网民  敬呈</p>
 <p>2015年6月12日星期五</p></p>
 <p>
-	<small> ============== 105天前</small>
+	<small> ============== 106天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/476" target="paopao-mirror">不负这个时代 ——致中国网友的一封信</a>
 </h2>
