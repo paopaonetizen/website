@@ -218,7 +218,7 @@
 <blockquote><p>这篇漫画，我想送给两位曾经都经历过艰难岁月的诺贝尔和平奖获得者，如今，一位还在坐牢，另外一位也曾经坐过牢的，现在却可以和让那位坐牢的独裁者坐下来谈谈国家大事了。</p>
 </blockquote></p>
 <p>
-	<small> ============== 151天前</small>
+	<small> ============== 152天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/477" target="paopao-mirror">自由，来源于争取</a>
 </h2>
