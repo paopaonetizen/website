@@ -45,7 +45,7 @@
 <p><span>沟通达成的速度也随着网络结构的不同而不同，如果网络上有些人的邻居比另些人多很多，那么</span><span>拥有最多邻居的人将最有能力促成一致</span><span>。研究者称其为</span><span>“</span><span>少数人权力效应</span><span>”</span><span>，因为最终达成的目标很可能取决于这些少数人的偏好。很明显，除了积极的连接，我们还需要足够的监督机制，以及推广批判性思维模式。</span></p>
 <p><span>——</span><span>未完待续</span><span>——</span></p></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/633" target="paopao-mirror">连接的能力（二）做为信息传递的弱连接</a>
 </h2>
