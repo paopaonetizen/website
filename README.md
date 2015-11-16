@@ -24,6 +24,27 @@
             </tr>
 </table>
 <h2>
+	<a href="https://pao-pao.net/article/635" target="paopao-mirror">连接的力量（四）真实的虚拟世界</a>
+</h2>
+<p><p><span><a href="https://iyouport.com/archives/53355" rel="nofollow"><span>上一篇</span></a></span><span>中我们谈到</span><span>“</span><span>少数人权力效应</span><span>”</span><span>：当处于同一网络结构中的成员拥有互相矛盾的目标时，为能在短时间内达成一致，一些人必须屈服于其他人的意见。实验表明，</span><span>如果网络中的某些人拥有很多的邻居，那么拥有最多邻居的人就能达成他们想要的目标。</span></p>
+<p><span>虚拟世界和真实世界有很多相似的地方，比如</span><span>阶层</span><span>，现实中的富人更富穷人更穷、贫富不均等现象在互联网上同样存在，虚拟世界的财富就是</span><span>影响力</span><span>——</span><span>引领带动、达成一致的权力。这就是极权当局不断升级的</span><span>网络维稳</span><span>中最主要的着力点之一：将影响力控制在极权价值观认同者手中。树立五毛大</span><span>V</span><span>、不断注销民主人士的账号、审查内容抓捕发布者，即便无法做到彻底清除异议，也足以令异议变得</span><span>“</span><span>无足轻重</span><span>”</span><span>。</span></p>
+<p><span>多年来，时政评论者们不断嫁接各种时讯来阐述这些问题，但与此同时舆论场生态变得愈发</span><span>糟糕</span><span>：明显增多的小粉红、无处不在的自干五、充斥着冷漠麻木和视而不见</span><span>……</span><span>而理论反而口水化，以营销式吐槽为荣，实用性、深入程度严重不足，越来越变成一种隔靴搔痒的存在，挑逗着舆论场萎靡的神经。</span></p>
+<p><span>很多人理解到自己无法扭转社会对权威的盲目、理解到自己的</span><span>思想智慧只有搭乘影响力指数才能得以实现其价值</span><span>，于是炒作风盛行。也的确有不少人靠炒作成名、靠营销</span><span>“</span><span>出人头地</span><span>”</span><span>、靠攀大腕儿借得荣光，但成功后的他们却难以再圆初衷。因为极权控制着</span><span>利益准入</span><span>，而利益分配是以准入为前提的，也就是说，这份</span><span>“</span><span>成功</span><span>”</span><span>需要经由极权的首肯，搭建了厚重的连接的个体和小团体其连接对象的价值观都在审查的红线之内，这种情况下再回头反极权意味着亲手斩断很多连接关系，自我削弱影响力。这就是大</span><span>V</span><span>们</span><span>“</span><span>变得</span><span>”</span><span>理中骑墙的内因，而外因众所周知：</span><span>收割、统战和绞杀</span><span>。</span></p>
+<p><span>这也是为什么强调不能对墙内平台寄予希望的原因之一。在墙内被削弱的民主人士需要</span><span>在墙外再度形成充分的连接</span><span>。上篇中我们谈到动机，只要有基础动机就可以通过沟通变为同道、形成强连接。还有机会创造一种新的</span><span>连接模型</span><span>，令其没有或淡化权威（中心）的概念，以扩大化的协作为基础。</span></p>
+<p><span>我们都知道，股票和房子的价格很大程度上取决于人们认为它值多少钱。竞争式市场的运转完全依赖于这只看不见的手，但社会网络会让这些市场扭曲，有时会形成一记</span><span>看不见的耳光</span><span>。</span></p>
+<p><span>对于同一个话题来说，不同观点的舆论中，占据份额较高的观点倾向因转载转发量高，而被视为是正确的。俗话说</span><span>“</span><span>有理不在声高</span><span>”</span><span>，但在互联网上则变成了：声低便无理。而</span><span>“</span><span>高低</span><span>”</span><span>的不同三成取决于表达方式，七成取决于连接模式。</span></p>
+<p><span>假设一个场景，一群人正在准备为一个事件给出决策，如果人们按先后顺序进行决策，后面的人会知道前面的人已下定的决策，并且信息仅从一个人传递给另一个人的话（就像咬耳朵游戏），那么最终得到的结论很可能无效甚至荒谬。如果所有人各自独立决策，在表态之前互相之间不可见，最终收集结论整合取中便将得到一个不错的答案。</span></p>
+<p><span>因为从众效应很难以避免，一旦有足够多的人做出了决策，这个群体中其他人就会不假思索的认同，因为这个时候他们认为不认同才是唯一的错误。所以我们常见的圈子内互捧、盲目跟进、瞬间的刷屏转发，很可能并非完全受制于圈子潜规则，还有这种自动进入</span><span>“</span><span>代理状态</span><span>”</span><span>的可能。新闻中经常会见到群体下跪诉求的画面，很可能是被错误的带动而形成的，也是我经常不认为只凭某些新闻图片就能确定一个阶层或群体的政治意识水平的原因。</span></p>
+<p><span>人们倾向于想要别人想要的东西，倾向于将别人的选择当做认识世界的有效途径。也因此，</span><span>社会网络能放大那些最初看起来仅仅是偶然的变化</span><span>。</span><span>群体的智慧是否可信，取决于群体成员之间的互动方式</span><span>：同步且独立，还是依仗权威和从众。我们最终能否通过协作解决问题实现目标，那些小的变化有时会导致很大的差异。</span></p>
+<p><span>我总是在不断强调提升理论的实用性，其实这句话换个说法就是：</span><span>让智识成为连接的媒介</span><span>。我们都熟悉维基百科的编辑模式，人们曾经对它的运作方式产生过很多怀疑：一个任何人都可以编辑的网站，用不了多久就会因破坏性信息的输入而变得毫无价值，怎么可能维持得住？但它真的维持住了，还运转得不错。维基百科的例子和市场、政治有很多相似，每个人都是独立给出的决策，但所有结论综合起来就产生了新的东西，它既不存在于做为个体的人之间，也不是任何一个单独的人能够做到的。</span></p>
+<p><span>通过从众多资源中收集并平均化，维基百科建立了一个通往知识的路径。它的成功在于：关于每个题目都存在一个社会网络，这其中有合作者（贡献新的公正的信息）、也有坐享其成者（利用这些信息来解决问题），如果仅存在这两类人维基百科很可能不会成功，就如人们直觉中认为的那样会被恶意篡改，但它还有第三类人：惩罚者，他们在维基百科巡逻，发现恶意修改便即时恢复原状，并视情况取消某些账号的编辑资格。这种架构与人类文明开端时发生的一切是如此相似。如果惩罚者来自政府，人们不一定会合作，但</span><span>如果目标一致、命运相关的一群人形成了群体，他们的分散行动中融洽相处的能力就会自然而然地显现出来</span><span>。</span></p>
+<p><span>现代社会的人越来越孤立，在互联网上也一样，个体之间愈发难以形成互动，他们宁可不去尝试合作也不愿去冒被利用的风险，更多的人们开始选择自己照顾自己，一个人战斗。换句话说就是，他们可以切断与网络上其他人的连接，我们称其为</span><span>“</span><span>孤独者</span><span>”</span><span>。</span></p>
+<p><span>表面上看起来这种状况似乎有违我们的主题，孤独者过多真的会阻碍联盟的形成吗？也不一定。详情将在下篇中分析。</span></p>
+<p><span>（顺便题外一句：有些读者在质疑我们的选题含有</span><span>“</span><span>操控的意图</span><span>”</span><span>，其实这是个关于对</span><span>“</span><span>操控</span><span>/</span><span>影响</span><span>”</span><span>的理解的问题。至少到目前为止，还没有任何人能确保自己在他人面前的任何行为，能完全避免透露自己对彼此关系的观点而不至于影响到对方。即便是心理咨询师一言不发全程沉默倾听，这种姿态也已经对患者形成了巨大的影响。</span><span>于是问题并不在于如何避免影响和操控，而是在于如何对其进行最佳的理解和运用，以有益于他人为目的</span><span>）</span></p>
+<p><span>——</span><span>未完待续</span><span>——</span></p></p>
+<p>
+	<small> ============== 10天前</small>
+</p><h2>
 	<a href="https://pao-pao.net/article/634" target="paopao-mirror">连接的力量（三）成就“小世界”</a>
 </h2>
 <p><p><span>只要提到中国的网络生态，马上就会想到</span><span>GFW</span><span>，人们习惯于将一切无法实现的互联网能力都归因于墙的阻隔。墙究竟挡住了多少东西？可惜暂时拆不掉这堵墙，它甚至还在不断的升级，难道我们就只能停留在抱怨的层面上了？也不一定</span><span>……</span><span>我们的资源不多，阻隔却重重，于是充分利用便显得尤为重要，有哪些细节被忽视了吗？</span></p>
@@ -542,24 +563,6 @@
 <div>第二天深夜，火车在明朗的月光下靠近武汉，旷野中一片寂静，万物生长，她靠着我的肩膀，在睡梦中轻轻地磨着牙齿。</div>
 <div><img src="http://mmbiz.qpic.cn/mmbiz/icsn1Zo6n6c26VeIJQ8T8j76bafOmUdeicfrez6ia4hXfzD3eN9KFOY94nkOuKhOlIp1pUm1erbkyTx9Lia3IXvdTQ/0?wx_fmt=jpeg"></div>
 <div> </div></p>
-<p>
-	<small> ============== 164天前</small>
-</p><h2>
-	<a href="https://pao-pao.net/article/468" target="paopao-mirror">今年最受网友欢迎的六四贴纸：“自由64”</a>
-</h2>
-<p><p>每逢六四事件周年前夕，中港台都会有网民和设计师自发制作图片，以开放版权的方式供人免费下载，用来印制T恤衫、贴纸和海报。今年最受网民欢迎的一款设计来自台湾，设计者就读国立台中科技大学多媒体科系的黄咏翔。</p>
-<p>他在社交网站谈及自己的设计理念时说：</p>
-<blockquote><p>“用有点锈纹的鲜红文字，也是因为我认为虽然时间久了，会像金属一样，越发生锈，被人澹忘，但，当年流下的血，还在里面，是无法抹灭的，所以想用此呼吁大家不要忘记，不要放弃。”</p>
-</blockquote>
-<p></p><div><img height="480" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/1433411386047_670547677ddf7e28d964f32feaadc51d.jpg?itok=z5HOqVh3" alt="" title=""><div><div><div><a href="https://pao-pao.net/">黄咏翔设计的方型定稿。（黄咏翔FB，纪念六四26周年的贴纸行动）</a></div></div></div></div><div><img height="480" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/1433411375283_ea3e912019c787a222e01c8140f67df0.jpg?itok=9TYLEuMd" alt="" title=""><div><div><div><a href="https://pao-pao.net/">黄咏翔设计的方型定稿。（黄咏翔FB，纪念六四26周年的贴纸行动）</a></div></div></div></div>
-<p>他设计的“自由64”图案，刚刚于6月3日发表，旋即被网民疯狂转载和使用。但黄咏翔披露，最原初的设计其实是用了纯中文字“陆肆”。他说：</p>
-<blockquote><p>“我觉得，对我们台湾人来说，六四虽然是发生在中国的近代事件。但是大家所争取的，都是同样的东西，就是‘自由’。也就是这次设计这个贴纸的最主要的意念。我觉得六四算是一个大家共同的历史伤痛，所以应该较不宜太过时尚或是明亮路线。”</p>
-</blockquote>
-<p></p><div><img height="255" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/1433411395626_4b782c5be51eeb32c9c1aa2a552acd98.jpg?itok=mVQNyqzT" alt="" title=""><div><div><div><a href="https://pao-pao.net/">黄咏翔的设计初稿一。（黄咏翔FB，纪念六四26周年的贴纸行动）</a></div></div></div></div>
-<p>不过，为了让不懂中文的外国人也能看懂，他于是转而从阿拉伯数字“64”的方向思考。黄咏翔说，一觉醒来后，“突然把之前想到的一些关键字，都连接起来了！最重要的，就是‘自由’了。”于是“64”便融入了“自由”两字之中。</p>
-<p></p><div><img height="232" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/1433411431007_5f91ce38e6cc26decb26885d6f06cf69.jpg?itok=fQ6yG9kJ" alt="" title=""><div><div><div><a href="https://pao-pao.net/">黄咏翔的设计初稿二。（黄咏翔FB，纪念六四26周年的贴纸行动）</a></div></div></div></div><br><br>最终的设计公布后，获网民纷纷赞好：“非常赞的设计！厉害！把时、事、史、思，完整连结的发想！”“好棒!视觉意象简洁有力。请问哪里可以拿到贴纸呢?!”“真的！非常让人赞叹的设计！已经不知道该怎么表达感动。”黄咏翔自己也开始印制这款贴纸，贴在自己家的门窗上。
-<p></p><div><img height="480" width="360" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/1433411403348_cd698b798fb21685def5a86efc521552.jpg?itok=H07sC6Ls" alt="" title=""><div><div><div><a href="https://www.facebook.com/notes/%E9%BB%83%E8%A9%A0%E7%BF%94/%E5%85%AD%E5%9B%9B26%E9%80%B1%E5%B9%B4%E7%B4%80%E5%BF%B5%E6%B4%BB%E5%8B%95%E8%B2%BC%E7%B4%99%E8%A8%AD%E8%A8%88%E5%BF%83%E5%BE%97/10200577396995398">黄咏翔将自己设计的贴纸贴在门上（黄咏翔FB）</a></div></div></div></div>
-<p><em>本文原载于<a href="http://news.mingpao.com/ins/%E3%80%90%E3%80%8C%E8%87%AA%E7%94%B164%E3%80%8D%E8%B2%BC%E7%B4%99%E5%8E%9F%E5%89%B5%E8%80%85%E3%80%91%E5%8F%B0%E7%81%A3%E5%A4%A7%E5%AD%B8%E7%94%9F%E8%BF%B0%E7%90%86%E5%BF%B5%EF%BC%9A%E9%8F%BD%E7%B4%8B%E7%B4%85%E5%AD%97%E4%BC%BC%E7%94%9F%E9%8F%BD%E6%B7%A1%E5%BF%98%20%20%E4%BD%86%E7%95%B6%E5%B9%B4%E6%B5%81%E8%A1%80%E7%84%A1%E6%B3%95%E6%8A%B9%E6%BB%85/web_tc/article/20150604/s00004/1433412488158" rel="nofollow">明报即时新闻</a></em></p></p>
 <p>
 	<small> ============== 164天前</small>
 </p>
