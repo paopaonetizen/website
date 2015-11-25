@@ -457,7 +457,7 @@
 <p>最后，普及一下PGP的使用方法：它是跨平台的加密程序，很多Linux发行版自带GPG，windows版可以去这里<a href="http://www.gpg4win.org/" target="_blank" rel="nofollow">下载</a>，教程在<a href="http://www.williamlong.info/archives/3439.html" target="_blank" rel="nofollow">这里</a>。</p>
 <p><em>本文经授权转载自<a href="https://plus.google.com/+GhostAssassin/posts/cjyxwgVKmVQ" rel="nofollow">Phantom Knight</a></em><em>的博客，刊发时经过编辑。</em></p></p>
 <p>
-	<small> ============== 168天前</small>
+	<small> ============== 169天前</small>
 </p>
 <table>
     <tr>
