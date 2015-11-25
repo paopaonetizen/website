@@ -130,7 +130,7 @@
 <p><span>（顺便题外一句：有些读者在质疑我们的选题含有</span><span>“</span><span>操控的意图</span><span>”</span><span>，其实这是个关于对</span><span>“</span><span>操控</span><span>/</span><span>影响</span><span>”</span><span>的理解的问题。至少到目前为止，还没有任何人能确保自己在他人面前的任何行为，能完全避免透露自己对彼此关系的观点而不至于影响到对方。即便是心理咨询师一言不发全程沉默倾听，这种姿态也已经对患者形成了巨大的影响。</span><span>于是问题并不在于如何避免影响和操控，而是在于如何对其进行最佳的理解和运用，以有益于他人为目的</span><span>）</span></p>
 <p><span>——</span><span>未完待续</span><span>——</span></p></p>
 <p>
-	<small> ============== 18天前</small>
+	<small> ============== 19天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/634" target="paopao-mirror">连接的力量（三）成就“小世界”</a>
 </h2>
@@ -153,7 +153,7 @@
 <p><span>沟通达成的速度也随着网络结构的不同而不同，如果网络上有些人的邻居比另些人多很多，那么</span><span>拥有最多邻居的人将最有能力促成一致</span><span>。研究者称其为</span><span>“</span><span>少数人权力效应</span><span>”</span><span>，因为最终达成的目标很可能取决于这些少数人的偏好。很明显，除了积极的连接，我们还需要足够的监督机制，以及推广批判性思维模式。</span></p>
 <p><span>——</span><span>未完待续</span><span>——</span></p></p>
 <p>
-	<small> ============== 18天前</small>
+	<small> ============== 19天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/633" target="paopao-mirror">连接的能力（二）做为信息传递的弱连接</a>
 </h2>
