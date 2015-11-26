@@ -24,6 +24,42 @@
             </tr>
 </table>
 <h2>
+	<a href="https://pao-pao.net/article/641" target="paopao-mirror">反恐之道出于成因</a>
+</h2>
+<p><p><span>法国巴黎遭受的严重恐怖袭击引发全球范围关注，对</span><span>“</span><span>恐怖主义</span><span>”</span><span>的概念和恐怖袭击成因的理解再度迅速进入热话前列，但如早前一样，多数思考依旧没能触及</span><span>根源</span><span>。</span></p>
+<p><span>将恐怖主义等同于政治暴力的大屠杀或种族灭绝有部分不恰当，因为后者杀害的是整个群体，而恐怖主义杀害的是一小部分，通过他们来影响更广泛的</span><span>“</span><span>观众</span><span>”</span><span>。纳粹寻求灭绝犹太人、胡图族人寻求灭绝卢旺达人和图西族人，他们试图杀害的正是实际上的</span><span>“</span><span>目标</span><span>”</span><span>，然而恐怖主义并非完全如此，他们真正的目标是</span><span>更广泛的人群</span><span>，杀戮是在传递一个</span><span>信息</span><span>给更广泛的群体。再此意义上，被害者只能是恰好成为了受害人。</span></p>
+<p><span>更简单的误解便是将恐怖主义和宗教挂上因果关系、或者认为恐怖主义是一种</span><span>“</span><span>有别于正常人的另类基因</span><span>”</span><span>，甚至指称恐怖分子是魔性附体的怪胎</span><span>……</span><span>这的确是一些能令自己置身事外的、最便捷的解释，意为：</span><span>“</span><span>他们不正常，我们才是正常的，所以我们不会变成他们</span><span>”</span><span>。但实际上正相反，</span><span>恐怖主义不是什么特殊人格或者说与个体特性无关，并不存在</span><span>“</span><span>恐怖主义人格</span><span>”</span><span>这种东西，恐怖主义行为是环境造成的。</span></p>
+<p><span>政治学家和社会学家们的兴趣都在恐怖主义集团的政治和社会背景上，却较少有人会着眼于微观层次的</span><span>恐怖主义心理</span><span>研究，比如他们为什么会被成功招募、他们的动机成因是怎样的？弄清这些将是解决问题的</span><span>终极方案</span><span>。</span></p>
+<p><span>恐怖主义负载着</span><span>价值判断</span><span>，以至于一个人眼中的</span><span>“</span><span>恐怖分子</span><span>”</span><span>是另一个人眼中的</span><span>“</span><span>自由战士</span><span>”</span><span>，这正是恐怖主义集团能招募到如此多追随者的主因之一；对恐怖主义心理学的研究令政治心理学中情境论和性情论的区别更加凸显了，最终</span><span>情境论</span><span>占据了主导</span><span>——</span><span>政治极端主义者和群体总体而言并非精神病患者，虽然他们明显</span><span>受到为其行为辩护的意识形态的严重驱使</span><span>，比如被歪曲的宗教教义，是能令他们安心的有效渠道，但并不是令其成为恐怖分子的原因。那一时刻他们设置自己为代理状态了，「为了真主而战」、「受真主引导」，只是一种自我安慰。而</span><span>心理需求才是根源和主因，却被「反恐」忽视。</span><span> </span></p>
+<p><span>包括</span><span>911</span><span>及之后，所有造成比较严重后果的恐袭案，综合一下主犯身世记录就能发现这点，他们都曾经是</span><span>“</span><span>普通人</span><span>”</span><span>，并且在相关方面存在</span><span>共性</span><span>：在自己的国家居住很久但没有获得平等的国民待遇，他们都可以算是社会边缘人，在他们所处的国家里或因社会经济地位低落、或因有色人种而遭到歧视，均对自身处境心怀不满，有的人甚至早已存在丰富的犯罪记录；也有人自小与社会梳理，归属感缺失磨合出对特定群体甚至人类整体的特殊的敌视，于是寻找属于自身血缘的归属、信奉一些原本不相干的宗教诉求、视无差别杀戮的恐怖首脑为</span><span>“</span><span>英雄</span><span>”</span><span>、曲解最基础人性中的对</span><span>“</span><span>我</span><span>”</span><span>的成就需求。</span></p>
+<p><span>然而</span><span>偏见和被偏见是一种普遍现象，它来源于人类大脑中创建分类的方式、对不安全感的基本反应</span><span>。也正因此，</span><span>偏见不可能消除</span><span>，它就构建在人类的常规反应中。那些声称不会受到偏见影响的人们最多只说出了一半事实</span><span>——</span><span>他们能确信不会将自己的偏见付诸实施。很明显这是一个需要</span><span>意识</span><span>介入的领域，意识帮人们压制、重构潜意识下的行为反应，并制定其他行为方案。</span></p>
+<p><span>当普通的歧视被扩大化并且付诸实践的时候就将出现恶性偏见，甚至由此导致种族清洗或种族灭绝</span><span>（过渡到政治暴力）。因为它经常会涉及</span><span>身份认同问题</span><span>，是与归属需求相似的一种</span><span>“</span><span>动机</span><span>”</span><span>。问题就在这里。以发生在</span><span>20</span><span>号的马里劫持案为例，据媒体报道，持枪者要求人质背诵《古兰经》内容，以此区分穆斯林与非穆斯林。这就是一种以极端方式处理的身份认同，它来自于对排斥穆斯林身份的反击。与之对立的另一种寻求身份认同的方式则是意识驱使的，就如前日<a href="http://mic.com/articles/128817/muslim-man-s-silent-demonstration-asks-passersby-do-you-trust-me-if-yes-hug-me#.aNIVXgtTY" rel="nofollow"><span>MIC</span></a>的报道：</span><span>一位穆斯林男子无声地询问路人：</span><span>“</span><span>你相信我吗？如果是，请抱抱我</span><span>”</span><span>。</span></p>
+<p><span>自杀式恐袭者可以做到在没有任何心理负担的状况下杀戮那些无辜的人，长期的仇恨在那一刻能让他们感觉到自豪，他们的公民权被剥夺了，就如同他们杀害的那些人一样不存在公民权</span><span>……</span></p>
+<p><span>去人性化并不是恐怖主义和政治暴力的唯一原因</span><span>。经济上的自私自利、国家安全面临的压力、转嫁人群不满情绪的需要等所有这些，以及其他原因都可解释冲突的发生。但强大的破坏性冲突不能仅以自私自利来解释，更深刻的非理性动机（及幻觉）不可避免的伴随着冲突的始终。</span></p>
+<p><span>在解释恐怖主义和一般政治暴力中另一种比较流行的理论是</span><span>“</span><span>挫折</span><span>-</span><span>攻击理论</span><span>”</span><span>，它认为攻击行动发生于一个人目标受挫或被阻的时候。应用于恐怖主义的解释解释则认为：恐怖主义者的行为是</span><span>“</span><span>情感转移（投射）</span><span>”</span><span>的一种形式。人类用投射或转移的方式发泄不满是很有普遍性的，但它通常上升不到</span><span>“</span><span>主义</span><span>”</span><span>，最常见比如在单位生了气回家打孩子，这就是心理防卫机制在起作用。</span></p>
+<p><span>被怀疑为巴黎恐怖袭击主谋的比利时男子阿卜德勒哈米德</span><span>·</span><span>阿巴奥德</span><span>(Abdelhamid Abaaoud)</span><span>是一名伊斯兰国战士，据</span><span>称他在今年</span><span>1</span><span>月当局挫败了一次恐怖袭击计划之后逃到了叙利亚。那次被挫败的恐怖袭击针对的是比利时东部城市韦尔维耶。据<a href="http://cn.nytimes.com/world/20151118/c18paris" rel="nofollow"><span>纽约时报报道</span></a>，有关追捕阿巴奥德、以及用空袭</span><span>袭击未果的新细节提供的最新证据表明，那些参与巴黎袭击的嫌疑人中，有不少人是当局事先就知道的</span><span>……</span></p>
+<p><span>然而</span><span>挫折</span><span>-</span><span>攻击理论顶多能做为一整套环节中的节点存在，它并不是动机根源</span><span>。且它是从</span><span>个人层次</span><span>上去解释的，所以当它迈向社会或群体层次时无疑会面临困难。群体并不仅仅是个人的简单集合，</span><span>团体动力经常能对个人发挥影响、改变个人在独自情况下做出的决策</span><span>。于是</span><span>情境论</span><span>依旧占据主体。且不止恐怖主义，政治极端主义特别是种族灭绝式暴力，情境因素都能在其中起到驱使人们出现背离自身声称的价值的行为，路西法效应就是最经典的邪恶成因心理分析。</span></p>
+<p><span>很多证据显示，恐怖主义者认为自己别无选择，不得不实施恐怖主义行为、用暴力对外部形成威胁，他们的行为是</span><span>基于各种原因通过报复社会来表达对政治的极度不满和反抗</span><span>。他们的确受到了基本归因偏差的反向作用：高估了自身行为源于情势需要的程度。不过在某些状况下确实没有太多选择，尤其是</span><span>压迫性政治体系</span><span>里，恐怖主义事实上是那些寻求改变的人们能采取的唯一的行为。极权对人权的无情镇压、对某些种族的歧视，不同意见无法表达，不得不诉诸政治暴力。</span></p>
+<p><span>当下真正的恐怖主义产生和发展的国际条件也是如此，基于对国内政治的不满和反抗而发生的个人恐怖行为，是个人表达对社会不满和反抗的极端形式。</span><span>然而美国国安局用非法监听的方式</span><span>“</span><span>反恐</span><span>”</span><span>、中国对付维族人士的严打肃杀、宣传机构呼吁全国</span><span>“</span><span>警惕维人</span><span>”</span><span>，他们正在以</span><span>“</span><span>国家安全</span><span>”</span><span>为由趁机扩权，</span><span>“</span><span>反恐</span><span>”</span><span>之道已经变成了制造恐慌的问题本身</span><span>。</span><span>当国内强权专制和国际霸权主义相结合的</span><span>“</span><span>反恐</span><span>”</span><span>开启，恐怖主义行为将进入更疯狂的时代。</span></p>
+<p><span>恐怖主义是可怕的，然培养恐怖主义的社会情境和国际体系更加可怕。</span></p>
+<p><span>日前据新疆天山网报道，</span><span>“</span><span>新疆警方打掉今年</span><span>9</span><span>月制造拜城煤矿袭击案的警方所称的</span><span>“</span><span>暴恐</span><span>”</span><span>团伙，并打死</span><span>28</span><span>名团伙成员</span><span>“</span><span>。人权组织和流亡者说，新疆暴力源于许多维吾尔人对中国控制新疆的宗教和文化不满，同激进组织无关。</span></p>
+<p><span>IS</span><span>不会是恐怖主义集团的终极版、纳粹灭亡也可能不是极端政治暴力的终结，如果根源无法解决，还将会有下一个更强大的恐怖主义集团出现、以及频繁不断的不形成集团的零散恐袭。</span></p>
+<p><span>那么</span><span>“</span><span>根源</span><span>”</span><span>是什么呢？基于本文分析并认同的</span><span>情境论</span><span>，列举</span><span>恐怖主义形成根源的情境因素</span><span>，如果希望反恐能真正有效彻底，在打击已成型并强大起来的恐怖主义集团的同时，以下情境当引以为戒：</span></p>
+<p><span>1</span><span>、</span><span>       </span><span>缺乏民主、公民自由和法治</span></p>
+<p><span>2</span><span>、</span><span>       </span><span>失败国家或急速的现代化</span></p>
+<p><span>3</span><span>、</span><span>       </span><span>世俗或宗教类型的、极端的意识形态</span></p>
+<p><span>4</span><span>、</span><span>       </span><span>政治暴力、内战、独裁和侵略的历史先例</span></p>
+<p><span>5</span><span>、</span><span>       </span><span>霸权和权利不对等</span></p>
+<p><span>6</span><span>、</span><span>       </span><span>非法的和腐败的政府</span></p>
+<p><span>7</span><span>、</span><span>       </span><span>强大的外部行为体所扶持的非法政府</span></p>
+<p><span>8</span><span>、</span><span>       </span><span>严重的种族根源的歧视问题和经历</span></p>
+<p><span>9</span><span>、</span><span>       </span><span>国家本身排斥不同政见者和新兴社会阶层</span></p>
+<p><span>10</span><span>、</span><span>   </span><span>社会不公的经历</span></p>
+<p><span>11</span><span>、</span><span>   </span><span>高度强调意识形态、强调领导人个人崇拜</span></p>
+<p><span>12</span><span>、</span><span>   </span><span>触发事件</span></p></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://pao-pao.net/article/636" target="paopao-mirror">连接的力量（五）群结构和群际关系</a>
 </h2>
 <p><p> </p>
@@ -435,27 +471,6 @@
 <p><a href="https://pao-pao.net/article/451" rel="nofollow">本网曾有报道</a>，类似“无界传媒”、界面、前海等一批财力雄厚的党宣新媒体正在招募自由派及泛自由派媒体人（写手），其性质足可理解为变相吸纳。它们实质党宣的身份尚未被公众全面获知，借此“形势”将传统官媒各种污点一笔勾销，以期重塑“公信力”。上述这些具有一定知名度的写手的加盟也起到了可观程度的粉饰效果。</p>
 <p><strong>当然，能被吸纳的基本都是长期的中间立场，做为真正的反对者是不会被物质诱惑所动摇的。也就是说，统战和收编的结果只能是令中立立场消失，舆论场最终切割为泾渭分明的两部分。</strong></p>
 <p>一边是敞开的收编大门（如祝华新所言：拉到人民日报上写文章、“给出路”）、一边是新统战战略（拉拢“新媒体的代表人士”），一边是更加严峻的审查管制和“断绝出路”（投稿被拒），此时“隆重推出”的打赏功能，如能吸引异议写手做自媒体，既“有平台发言”，又“有机会赚钱”，似乎没理由拒绝。但需要想到的是，愈加严峻的审查态势之下，作品若想留存就势必会在一定程度上将所谓的“尺度”考虑进去。针对微信公众号的审查封锁已令越来越多的优质作品消失、大批写手在放弃原创路线，微博和其他墙内平台的打赏又能吸引来什么呢？如果屈从于审查、驻留墙内，即便只是自媒体，又何尝不是另一种妥协？<strong>相信以发声为唯一目的的写手，会能在金钱诱惑和言论自由之间做出符合自身预期的选择。</strong></p></p>
-<p>
-	<small> ============== 169天前</small>
-</p><h2>
-	<a href="https://pao-pao.net/article/472" target="paopao-mirror">加密程序PGP背后的故事</a>
-</h2>
-<p><p>【摘要】如果隐私是非法的，那就去他妈的法律！</p>
-<p>“如果隐私是非法的，那就去他妈的法律！”</p>
-<p align="right">——Philip Zimmermann</p>
-<p>我不知道有多少人听说过<a href="http://zh.wikipedia.org/wiki/%E8%89%AF%E5%A5%BD%E9%9A%B1%E7%A7%81%E5%AF%86%E7%A2%BC%E6%B3%95" target="_blank" rel="nofollow">PGP</a>（Pretty  Good Privacy）：这是一个加密程序，被广泛用于对文件和邮件进行加密。PGP本身是收费商业软件，所以现在最常用的是开源免费的GPG（Gnu Privacy Guard）软件（它使用OpenPGP标准，可以方便的进行PGP加密和解密）。</p>
-<p>也许诸位以为我接下来要仔细分析PGP的原理了。不！这次我想和诸位分享一下PGP背后的故事，这可是一段传奇啊......</p>
-<p>话说美国有个软件工程师，名叫<a href="https://pao-pao.net/node/42" rel="nofollow">Philip Zimmermann</a> ，同时也是一名活动家<a href="https://pao-pao.net/node/42" rel="nofollow">（编者注：泡泡曾采访过他）</a>。他发现早期的互联网完全没有任何加密，用户之间传递的信息可以被任何人轻易截取窃听；更糟糕的是，联邦政府一直在试图将窃听合法化（诸位想到了爱国者法案和棱镜事件没有？）。</p>
-<p>当时，联邦政府宣称：“我们完全只是为了打击犯罪才进行窃听的，我们的窃听行动是被法律所许可的；那些举止合法的公民们，他们根本不用担心什么窃听，不是吗？”</p>
-<p>Philip Zimmermann心想，“开什么玩笑？对，打击犯罪，请问什么叫做犯罪呢？你们联邦政府嘴一张说什么是犯罪什么就是？被法律许可？好吧，傻子才会相信你们呢！你们规定了一种加密算法，然后自己握有解密密钥，再把其他加密算法宣布为非法，这实在是太可笑了！要知道隐私可是属于每个人的基本人权，至于所谓的光明磊落，那请问为什么要把信装在信封里呢？为什么不直接写在明信片上呢？为什么在要求想要搜查你的房子的 警察出示搜查证呢？那些认为只有罪犯才需要隐藏自己的家伙们，他们的逻辑不是和那些认为穿裤子的人是在裤子里藏炸弹的恐怖分子的家伙一样吗？”（<a href="https://www.philzimmermann.com/EN/essays/WhyIWrotePGP.html" target="_blank" rel="nofollow">点击</a>查看英文原文）</p>
-<p>就这样，1991年，PGP横空出世了。请注意，那是1991年，SSL都是1994年的事情，也就是说PGP是世界上第一个信息加密传输工具，而且是可以被个人使用的工具。</p>
-<p>最早的PGP不是商业软件，而是可以被任何人随意使用的开源软件，Philip Zimmermann在第一时间公开了源代码并上传到互联网上。很快，PGP就有了大批用户，而且还被国外的互联网用户所知，很多极权国家的用户都开始使用PGP进行数据传输。</p>
-<p>然后，很不幸，麻烦来了：当时的美国法律把加密产品当作军火看待。这其实是个历史遗留问题，一战和二战的时候加密学在战争中发挥了巨大作用，因此，很多国家由此把加密技术视作军火，禁止加密技术出口，而PGP被国外用户采用......联邦政府认为这威胁到了国家安全！</p>
-<p>联邦政府据此对Philip Zimmermann展开了犯罪调查，而且勒令禁止在互联网上传播PGP源码和产品。麻烦缠身的英雄Philip Zimmermann并没有屈服，他出版了一本书，在书中附上了PGP的完整源码，然后将书籍出口到国外。因为美国宪法第一修正案规定公民享有言论自由 （出版自由就是言论自由的一部分），而且书本不是军火，无法当成军需品特别对待，所以这下联邦政府就没有任何办法了。</p>
-<p>最终，在 1996年，联邦政府放弃了对Philip Zimmermann的犯罪指控，此后也修改法律取消了对加密技术的出口限制。而现在，加密技术已经走向了个人，诸位的PC和手机里到处都是加密产品： 浏览器（TLS加密），邮件客户端（支持加密传输邮件），文件加密工具，与远程服务器加密通信的其他软件......已经没有哪个政府能够阻止加密技术的 传播了！<br><br>某种程度上来说，这一切其实都是来自于Philip Zimmermann的坚守：被联邦政府骚扰了5年，被爱国者们骂成不顾国家安全的卖国贼，但是他从未退缩过。很多国家的用户写信对他表示感谢。迄今为止，不计其数的人权活动家被PGP保护着。</p>
-<p>1997年英雄的公司被商业公司收购，后来PGP变成了闭源的商业产品，现在PGP在大名鼎鼎的赛门铁克公司手中，不过这些是后话了，毕竟我们还有开源免费的GPG可用，关系不大。（因为PGP标准是公开的，所以其他人也能据此开发相应的加密软件）</p>
-<p>最后，普及一下PGP的使用方法：它是跨平台的加密程序，很多Linux发行版自带GPG，windows版可以去这里<a href="http://www.gpg4win.org/" target="_blank" rel="nofollow">下载</a>，教程在<a href="http://www.williamlong.info/archives/3439.html" target="_blank" rel="nofollow">这里</a>。</p>
-<p><em>本文经授权转载自<a href="https://plus.google.com/+GhostAssassin/posts/cjyxwgVKmVQ" rel="nofollow">Phantom Knight</a></em><em>的博客，刊发时经过编辑。</em></p></p>
 <p>
 	<small> ============== 169天前</small>
 </p>
