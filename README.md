@@ -82,7 +82,7 @@
 <p><span>11</span><span>、</span><span>   </span><span>高度强调意识形态、强调领导人个人崇拜</span></p>
 <p><span>12</span><span>、</span><span>   </span><span>触发事件</span></p></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/636" target="paopao-mirror">连接的力量（五）群结构和群际关系</a>
 </h2>
