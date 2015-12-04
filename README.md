@@ -283,7 +283,7 @@
 <p><span>Akimoto</span><span>：</span><span>主要是苹果的</span><span>“</span><span>中国版</span><span>”</span><span>在大陆获取的高额利润，对那些海外公司来说是不小的诱惑。但同样是接受审查，</span><span>FB</span><span>会比苹果耗费更大成本。如果它能进入中国，需要一支专门的</span><span>“</span><span>富有经验</span><span>”</span><span>的审查团队实时运营。最重要的是，中国的审查标准很模糊，解释权在网信办手里，外籍企业即便接受审查也不一定了解真正需要删些什么。中国当局也明白这点，于是除非能答应对中国用户建立单独的数据库，并储存在中国本土的服务器上，以及足够的与中国企业合资的</span><span>“</span><span>诚意</span><span>”</span><span>。对于前者，扎克曾经拒绝过，对于后者即便答应下来，也只有中国互联网三巨头能与其体量相近。新浪做为山寨版的</span><span>twitter</span><span>扎克不一定看得上，而腾讯与</span><span>facebook</span><span>太相似缺少互补空间。谁能帮</span><span>FB</span><span>落地中国这个问题一直是评论界的热门话题，目前认为百度和阿里巴巴最有可能，但两者的态度至今都很模糊。</span></p>
 <p><span>iYouChat</span><span>：中国网民支持被中国封锁的海外互联网企业的现实方式是翻墙对抗封锁管制。相信选择使用谷歌、</span><span>FB</span><span>而不是百度、微博的用户所看重的应该是享受言论自由的机会。不论扎克自己怎么认为，其努力进入中国市场的全过程所展示出的艰难已足够令极权政府严酷的网络管制现实得以被更广泛的感知。如果</span><span>FB</span><span>最终无法进入中国，其中文用户数量的增减、以及海外市场对</span><span>“</span><span>中国互联网产品国际化实质是反转</span><span>GFW”</span><span>这个概念的共识程度，将有可能体现这一感知成效。</span></p></p>
 <p>
-	<small> ============== 27天前</small>
+	<small> ============== 28天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/630" target="paopao-mirror">连接的力量 （一）做为带动的强连接</a>
 </h2>
