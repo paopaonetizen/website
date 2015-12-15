@@ -299,7 +299,7 @@
 <p><span>将一个模糊陈述的问题转换成具体词句的过程能帮助我们分辨</span><span>哪些是假性问题，哪些是真正的问题</span><span>。对假性问题，澄清和阐明并不是解决之道，必须将它拆解，以免模糊了真正的问题。抱怨和不满的情绪发泄也不是解决之道，哪怕它对应是的确是真正的问题，但其持久化则很可能模糊了真正的问题所在。因为人们对情绪太敏感了，最终</span><span>“</span><span>解决情绪问题</span><span>”</span><span>这个假性问题会容易取代情绪背后的根源问题。</span></p>
 <p><span>好了，剩下的就是关于</span><span>取信、连接、动员和相关思维模式技巧</span><span>的话题了，<a href="https://iyouport.com/" rel="nofollow"><span>自由港</span></a>早前都有详细介绍。</span><span>最后强调一句：永远不要忘记自己的目的、目的、目的</span><span>。</span><span>如果您对</span><span>“</span><span>解决问题</span><span>”</span><span>或者说对</span><span>“</span><span>改变</span><span>”</span><span>有兴趣，不妨去实践下。把它们结合起来看，您一定知道我在说什么</span><span>~</span></p></p>
 <p>
-	<small> ============== 25天前</small>
+	<small> ============== 26天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/638" target="paopao-mirror">“可怕的简化”、广义乌托邦和悖论</a>
 </h2>
