@@ -344,7 +344,7 @@
 <p><span>3</span><span>、逻辑层次误置，进入没有结局的游戏：试图以第一序改变达成目的，但该状况只能从第二序中解决；或者正相反，第一序就可以解决的问题却强求促成第二序。（</span><span>在错误的层次上采取行动</span><span>）</span></p>
 <p><span>以上三种错误非常普遍且危害不小，详细内容将在</span><span>下篇</span><span>中具体分析。</span></p></p>
 <p>
-	<small> ============== 27天前</small>
+	<small> ============== 28天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/635" target="paopao-mirror">连接的力量（四）真实的虚拟世界</a>
 </h2>
