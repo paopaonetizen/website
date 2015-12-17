@@ -323,7 +323,7 @@
 <p><span>上述是</span><span>压制</span><span>带来的，在另一些压制性较少的情况下，人们在寻求改变的过程中也有可能陷入类似的悖论，以至于</span><span>原地踏步</span><span>。比如人际关系领域里，越是有重要人物确定或认可我们的自我形象越能让我们有实在的感觉，这一认可只有当它是自动自发给予时才能达到目的，于是只有绝对理想的人际关系案例中才不会发生悖论。人与人之间的关系或多或少会存在一个秘密协议，</span><span>人情社会</span><span>里类似</span><span>“</span><span>交易</span><span>”</span><span>型的社交关系就更为普遍：</span><span>“</span><span>你帮我这个，我就帮你那个，否则</span><span>NO”</span><span>。这类不成文的</span><span>“</span><span>协议</span><span>”</span><span>随着时间的消逝终将被抛弃，</span><span>唯一必要的改变是改变此协议本身</span><span>，而不只是在协议框架内做第一序改变。</span></p>
 <p><span>然而，如我们所知，要跨出从内向外的第一步，的确非常困难，如何掌握促成</span><span>第二序</span><span>改变需要一些技巧。详细将在下一篇中具体介绍。</span></p></p>
 <p>
-	<small> ============== 28天前</small>
+	<small> ============== 29天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/639" target="paopao-mirror">别把解决之道变成问题</a>
 </h2>
