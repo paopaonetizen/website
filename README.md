@@ -441,7 +441,7 @@
 <p><span>一切依靠交流来实现。前提是：存在基础动机。不论其是否有通过外显态度得以公示、甚至个体内心是否有明确感知，只要它存在就有机会唤醒。具体技巧详见本网关于</span><span>“<a href="https://iyouport.com/archives/51962" rel="nofollow"><span>态度和说服</span></a>”</span><span>的系列文章。</span><span> </span><span>关系网络是动态的，随着时间的流逝不断变化着形状，强弱连接之间互相转换。如果能在某一具体计划上促成一种相对稳固的、强弱连接最有效交织的模式，将可大幅提高解决问题的效率。详情将在下篇中介绍。</span></p>
 <p><span>——</span><span>未完待续</span><span>——</span></p></p>
 <p>
-	<small> ============== 46天前</small>
+	<small> ============== 47天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/632" target="paopao-mirror">公众号依赖和脸书亲中</a>
 </h2>
