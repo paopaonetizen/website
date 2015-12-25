@@ -53,7 +53,7 @@
 <p><span>4</span>、上述原因是否可以通过既有安全平台来改善？</p>
 <div> </div></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/652" target="paopao-mirror">再议互联网反恐与谷歌回归传闻</a>
 </h2>
