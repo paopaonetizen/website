@@ -315,7 +315,7 @@
 <p>是否想过，期待环境的压力或许方向有误，<span>社会人格、思维和认知习惯（</span>也就是舆论场中常见的<span>“</span>奴性<span>”</span>这个词<span>）正在抵消环境所能发挥的作用。<a href="https://iyouport.com/archives/50743" rel="nofollow"><span>本网曾有分析</span></a></span>，当管制力度加大、社会焦虑上升，权威性人格就会加强，人们更多将希望寄托于权威、更加顺从和懦弱，这时候当局的维稳式<span>“</span>承诺<span>”</span>就能发挥作用了。这是个可怕的困局，权利只能主动去争取，等待一分权利值就会下降十分，对解决问题来说吐槽段子等<span>功利性表达与抗议性表达天壤之别</span>。抗争究竟能不能通过动员来实现，如果可以，我们目前常用的方法被证低效，是否源于忽略了什么？长期关注本网观点栏目的观察者应该已有了明确的思路。</p>
 <div> </div></p>
 <p>
-	<small> ============== 46天前</small>
+	<small> ============== 47天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/642" target="paopao-mirror">再看中文网络舆论场</a>
 </h2>
@@ -483,7 +483,7 @@
 <p><span>（顺便题外一句：有些读者在质疑我们的选题含有</span><span>“</span><span>操控的意图</span><span>”</span><span>，其实这是个关于对</span><span>“</span><span>操控</span><span>/</span><span>影响</span><span>”</span><span>的理解的问题。至少到目前为止，还没有任何人能确保自己在他人面前的任何行为，能完全避免透露自己对彼此关系的观点而不至于影响到对方。即便是心理咨询师一言不发全程沉默倾听，这种姿态也已经对患者形成了巨大的影响。</span><span>于是问题并不在于如何避免影响和操控，而是在于如何对其进行最佳的理解和运用，以有益于他人为目的</span><span>）</span></p>
 <p><span>——</span><span>未完待续</span><span>——</span></p></p>
 <p>
-	<small> ============== 72天前</small>
+	<small> ============== 73天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/634" target="paopao-mirror">连接的力量（三）成就“小世界”</a>
 </h2>
@@ -506,7 +506,7 @@
 <p><span>沟通达成的速度也随着网络结构的不同而不同，如果网络上有些人的邻居比另些人多很多，那么</span><span>拥有最多邻居的人将最有能力促成一致</span><span>。研究者称其为</span><span>“</span><span>少数人权力效应</span><span>”</span><span>，因为最终达成的目标很可能取决于这些少数人的偏好。很明显，除了积极的连接，我们还需要足够的监督机制，以及推广批判性思维模式。</span></p>
 <p><span>——</span><span>未完待续</span><span>——</span></p></p>
 <p>
-	<small> ============== 72天前</small>
+	<small> ============== 73天前</small>
 </p>
 <table>
     <tr>
