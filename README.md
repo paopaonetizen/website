@@ -134,7 +134,7 @@
 <p><span>——</span>未完待续<span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/657" target="paopao-mirror">中文舆论场观察年报（下）</a>
 </h2>
