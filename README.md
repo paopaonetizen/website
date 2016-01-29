@@ -545,7 +545,7 @@
 <p>好了时间差不多了，感谢各位的参与，读者朋友您如果还有同样的感受和创造性建议，欢迎在评论栏中留言<span>~</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 63天前</small>
+	<small> ============== 64天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/641" target="paopao-mirror">反恐之道出于成因</a>
 </h2>
