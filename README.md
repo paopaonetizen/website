@@ -581,7 +581,7 @@
 <p><span>11</span><span>、</span><span>   </span><span>高度强调意识形态、强调领导人个人崇拜</span></p>
 <p><span>12</span><span>、</span><span>   </span><span>触发事件</span></p></p>
 <p>
-	<small> ============== 73天前</small>
+	<small> ============== 74天前</small>
 </p>
 <table>
     <tr>
