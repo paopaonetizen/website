@@ -3,9 +3,8 @@
 <img src="../../raw/master/x/paopao-banner_0.png" alt="泡泡"/>
 <table>
     <tr>
-                <td>泡泡免
-        翻墙安卓应用</td>
                 
+                <td>自由浏览</td>
         
                 <td><a href="https://raw.githubusercontent.com/greatfire/feeds/master/paopao.rss"
         target="paopao-rss">RSS <img
@@ -14,12 +13,11 @@
                 <!-- <td><a href=""
         target="paopao-mirror">免翻墙网页版</a></td> -->
     </tr>
-        <tr>
-                <td><a href="../../raw/master/x/PaoPaoAndroid.apk"><img
-        src="../../raw/master/x/paopao.qr.png" /></a></td>
-                
-                <td></td>
-                
+    
+            <tr>
+        <td><a href="../../raw/master/x/FreeBrowser.apk"><img
+        src="../../raw/master/x/fb.qr.png" /></a></td>
+
         
             </tr>
 </table>
@@ -648,8 +646,6 @@
 </p>
 <table>
     <tr>
-                <td>泡泡免
-        翻墙安卓应用</td>
                 
         
                 <td><a href="https://raw.githubusercontent.com/greatfire/feeds/master/paopao.rss"
@@ -659,12 +655,7 @@
                 <!-- <td><a href=""
         target="paopao-mirror">免翻墙网页版</a></td> -->
     </tr>
-        <tr>
-                <td><a href="https://raw.githubusercontent.com/greatfire/z/master/PaoPaoAndroid.apk"><img
-        src="https://raw.githubusercontent.com/greatfire/images/master/paopao.qr.png" /></a></td>
-                
-                <td></td>
-                
+    
         
             </tr>
 </table>
