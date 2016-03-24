@@ -55,7 +55,7 @@
 <p>真实的世界依赖于<a href="https://iyouport.com/?s=%E5%8F%8D%E8%84%86%E5%BC%B1" rel="nofollow"><span>反脆弱性的智慧</span></a>，但没有一所大学会主动承认这点，就如干预主义者从来不会接受没有他们的介入也可以改善的事实。反脆弱性赋予人们可以选择的能力，但不会确保我们真的使用它，它可能近在咫尺却未被发现。当你苦于在成堆的论文和谷歌搜索那些铿锵有力的时评文章里找不到想要的方法和策略时，请记得这句话。</p>
 <div> </div></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/679" target="paopao-mirror">自营销时代尴尬的媒体——你还记得新闻长啥样吗</a>
 </h2>
@@ -85,7 +85,7 @@
 <p>详细请见：《<a href="https://iyouport.com/archives/45954" rel="nofollow"><span>做个聪明的信息消费者</span></a>》<span>         </span>《<a href="https://pao-pao.net/article/626" rel="nofollow"><span>微妙的舆论引导</span></a>》</p>
 <div> </div></p>
 <p>
-	<small> ============== 12天前</small>
+	<small> ============== 13天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/678" target="paopao-mirror">语言不是沟通唯一的壁垒——网络空间中的三种伦理矩阵</a>
 </h2>
@@ -121,7 +121,7 @@
 <p>在心理学领域，理论是很不值钱的东西，任何人都能发明一两种理论出来。只有当理论经由测试验证、得到足够广泛的支持，并且经过实践证据的纠正，特别是当某种理论被证明为有用的时候<span>——</span>比如帮助人们理解「为什么他们自己的国家里很多人之间存在完全相反的价值观」，进步才能真正产生。</p>
 <div> </div></p>
 <p>
-	<small> ============== 13天前</small>
+	<small> ============== 14天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/675" target="paopao-mirror">可疑的空谈者、伦理和基本不对称性</a>
 </h2>
@@ -155,7 +155,7 @@
 <p>可以抛弃那些可疑的空谈家了，你不用为他们的荒谬承责。按照亚里士多德的定义，自由只是真心诚意表达政治意见的问题。</p>
 <div> </div></p>
 <p>
-	<small> ============== 30天前</small>
+	<small> ============== 31天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/672" target="paopao-mirror">不确定性能带来机遇 波动毁掉的只有惧怕它的人</a>
 </h2>
@@ -188,7 +188,7 @@
 <p>人们都希望能了解趋势、期待预测的准确性来提早准备。但政治和经济的<span>“</span>尾部事件<span>”</span>是不可预测的，历史经验在某种程度上只适合于历史的那一时刻。没有谁能把政治和经济变成德州扑克游戏中的可循随机性<span>——</span>波动就是信息，不论是大陆还是香港，我们已经看到了这股暗流，剩下的就是做好准备去迎接变革，不必恐慌，生命天然的反脆弱性智慧在压力和动荡中更容易焕发。</p>
 <div> </div></p>
 <p>
-	<small> ============== 36天前</small>
+	<small> ============== 37天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/670" target="paopao-mirror">思考的真相：互联网是如何变成无知培养皿的？</a>
 </h2>
@@ -291,7 +291,7 @@
 <p>由于基础实力相差悬殊，同时当局又具备超高的收买民间散兵的能力，相比下技术战对民主阵营来说是最难应对的一场战役，见招拆招专注于止损尚且可成为预期目标。</p>
 <p><img height="267" width="290" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/xia_pian_wen_zhong_tu_2_.jpeg?itok=t_cU_dB8" alt="" title=""></p></p>
 <p>
-	<small> ============== 57天前</small>
+	<small> ============== 58天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/666" target="paopao-mirror">互联网上的战争：信息战、舆论战、技术战（上）</a>
 </h2>
@@ -360,7 +360,7 @@
 <p>如果你真的有意沟通，我建议你如上述那般去应用技巧。必然需要其中一方先放下威慑身姿，共情是正义感的解药，尽管跨越观念分歧来实现共情非常困难。</p>
 <div> </div></p>
 <p>
-	<small> ============== 63天前</small>
+	<small> ============== 64天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/662" target="paopao-mirror">交流出现了什么问题（中）网络舆论场的交流障碍和解决办法</a>
 </h2>
@@ -392,7 +392,7 @@
 <p>———<span>未完待续</span>———</p>
 <div> </div></p>
 <p>
-	<small> ============== 64天前</small>
+	<small> ============== 65天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/661" target="paopao-mirror">交流出现了什么问题（上）为什么总是难以说服他人？</a>
 </h2>
@@ -454,7 +454,7 @@
 <p>反脆弱并不需要学习，它是人类的天赋，而现代社会自上而下的机制和政策正在侵犯天然的反脆弱能力，只有自下而上的突破意识才有机会重新唤醒这一天赋。</p>
 <div> </div></p>
 <p>
-	<small> ============== 77天前</small>
+	<small> ============== 78天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/656" target="paopao-mirror">中文舆论场观察年报（上）</a>
 </h2>
@@ -487,7 +487,7 @@
 <p><span>——</span>未完待续<span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 78天前</small>
+	<small> ============== 79天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/655" target="paopao-mirror">社交网络上的信任危机</a>
 </h2>
@@ -518,7 +518,7 @@
 <p><span>不确定性在脆弱眼里是威胁，而在反脆弱眼里则是激发能量的必要存在</span>。抗争者如果能在迅速加强的维稳打击和绝大多数沉默者包围的情势下坚守自己的初衷，就是反脆弱性的胜利。它只需要一点基础：坚持认为追求自由之路是正确的选择。难度不是问题，问题在于如何借用艰难环境激发出足够的<span>反脆弱能力</span>。我希望能有更多坚定的抗争者一起来思考这个问题。</p>
 <div> </div></p>
 <p>
-	<small> ============== 79天前</small>
+	<small> ============== 80天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/653" target="paopao-mirror">请无视乌镇，Internet才是我们的价值</a>
 </h2>
@@ -549,7 +549,7 @@
 <p><span>4</span>、上述原因是否可以通过既有安全平台来改善？</p>
 <div> </div></p>
 <p>
-	<small> ============== 96天前</small>
+	<small> ============== 97天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/652" target="paopao-mirror">再议互联网反恐与谷歌回归传闻</a>
 </h2>
@@ -573,7 +573,7 @@
 <p>以中国民间观察者的角度看，即便谷歌回归后全体网民就此弃用百度和<span>360</span>，也无法用来判断民间捍卫自由和反审查的意志强度，这是时评界反响不大的主要原因。<span>目前最容易做到的抗争行动就是翻墙，却依旧难以普及，旁的更无从谈起。</span><span> </span></p>
 <div> </div></p>
 <p>
-	<small> ============== 99天前</small>
+	<small> ============== 100天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/651" target="paopao-mirror">“互联网反恐”首次披露 大陆门户炒作“川普路线”</a>
 </h2>
@@ -617,7 +617,7 @@
 <p>几乎所有人都能感觉到分身乏术，专注于此便顾不得彼，然墙内有诱人的利益，粉丝经济直接提现、看起来<span>“</span>立身扬名<span>”</span>可期，<span>在极权文化培养的实用主义价值观作用下它就变成了一种强大的吸引力，并充满不可见的危险</span>。正巧近期大陆社交网络上正疯传费玉清的黄段子<span>“</span>我就让你嘿嘿嘿<span>”</span>，可以就此想象一下，姜峰的<span>“</span>影响力<span>”</span>鼓吹就如同费玉清所说的那个美女在诱惑你，但她正跑向悬崖，你还要不要去追她呢？</p>
 <p>冰河时代的确难以实现些什么，但如果认为<span>“</span>在管制之下争取足够多的影响力可留作日后带动初衷之意<span>”</span>的话，很可能已经落入极权设置的圈套。不可轻视的是<span>情境对行为的左右</span>、<span>时间对意志的消磨</span>，假使真的能在令审查满意的情况下、用变相妥协极权的方法获取到足够的影响力，在那之后你若还能记得初衷，我任由一切形式的斥责。</p></p>
 <p>
-	<small> ============== 103天前</small>
+	<small> ============== 104天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/649" target="paopao-mirror">解析第二届乌镇局域网大会：恐袭阴云或令网络失去自由</a>
 </h2>
@@ -642,7 +642,7 @@
 <p>从中国官媒提供的本届乌镇互联网大会与会嘉宾概况上来看，暂时认为可对此意向的呈现不抱希望。</p>
 <div> </div></p>
 <p>
-	<small> ============== 104天前</small>
+	<small> ============== 105天前</small>
 </p>
 <table>
     <tr>
