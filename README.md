@@ -233,7 +233,7 @@
 <p>详细请见：《<a href="https://iyouport.com/archives/45954" rel="nofollow"><span>做个聪明的信息消费者</span></a>》<span>         </span>《<a href="https://pao-pao.net/article/626" rel="nofollow"><span>微妙的舆论引导</span></a>》</p>
 <div> </div></p>
 <p>
-	<small> ============== 23天前</small>
+	<small> ============== 24天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/678" target="paopao-mirror">语言不是沟通唯一的壁垒——网络空间中的三种伦理矩阵</a>
 </h2>
