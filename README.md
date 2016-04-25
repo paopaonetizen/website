@@ -439,7 +439,7 @@
 <p>由于基础实力相差悬殊，同时当局又具备超高的收买民间散兵的能力，相比下技术战对民主阵营来说是最难应对的一场战役，见招拆招专注于止损尚且可成为预期目标。</p>
 <p><img height="267" width="290" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/xia_pian_wen_zhong_tu_2_.jpeg?itok=t_cU_dB8" alt="" title=""></p></p>
 <p>
-	<small> ============== 90天前</small>
+	<small> ============== 91天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/666" target="paopao-mirror">互联网上的战争：信息战、舆论战、技术战（上）</a>
 </h2>
