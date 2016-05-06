@@ -275,7 +275,7 @@
 <p>不过也有一些基于纵向数据的研究发现，互联网的使用在公民参与方面收效甚微，至少目前为止还未能显示出，赛博空间带来了政治参与方面更高的总体水平。它的主要能力在于融合情感，<a href="https://www.google.co.jp/url?sa=t&rct=j&q=&esrc=s&source=web&cd=2&cad=rja&uact=8&ved=0ahUKEwj38eWesMjLAhXIFpQKHSoHAuQQFggiMAE&url=https%3A%2F%2Fiyouport.com%2Farchives%2F53069&usg=AFQjCNHR2fCZAXBmsVQWcMtmODh1aR5s0g" rel="nofollow"><span>结交以形成更为广泛的关系网络</span></a>，最终的目标仍在线下。</p>
 <div> </div></p>
 <p>
-	<small> ============== 42天前</small>
+	<small> ============== 43天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/680" target="paopao-mirror">理论究竟能帮你多少？——关于目的论和可选择性的错觉</a>
 </h2>
@@ -615,7 +615,7 @@
 <p>如果你真的有意沟通，我建议你如上述那般去应用技巧。必然需要其中一方先放下威慑身姿，共情是正义感的解药，尽管跨越观念分歧来实现共情非常困难。</p>
 <div> </div></p>
 <p>
-	<small> ============== 107天前</small>
+	<small> ============== 108天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/662" target="paopao-mirror">交流出现了什么问题（中）网络舆论场的交流障碍和解决办法</a>
 </h2>
