@@ -22,6 +22,56 @@
             </tr>
 </table>
 <h2>
+	<a href="https://pao-pao.net/article/690" target="paopao-mirror">Twitter新任共军经历的中国区董事 中文用户需要警惕什么</a>
+</h2>
+<p><p><span>上周末，一则消息在</span><span>Twitter</span><span>中文圈引发轰动效应，恐慌、焦虑、冷静分析和怒不可遏，各种态度接踵而来。但对</span><span>Leon</span><span>来说，更多的是纠结。</span></p>
+<p><span>「我不知道该不该跟进这个话题」，</span><span>Leon</span><span>说，「在此之前，有海外社交网络中文用户因发言或传播内容，被中国当局传唤甚至拘留的消息，我都做了淡化处理，强调属于定位监控，</span><span>提醒人们注意</span><span> </span><span>，一定要将墙外注册信息与墙内常用信息做区别处理，避免被加以关联。我希望大陆网民能保住至少一个可信赖的平台、保住拒绝自我审查畅所欲言的习惯，其根本是政治反对的音量不能再被削减了，自由思考的能力不要继续下滑</span><span>」。</span></p>
+<p><span>Leon</span><span>是记者，主要负责互联网相关话题的报道，供应翻墙的中文网民，包括翻墙技术推介、隐私安全维护技巧，以及协助声援因言获罪的网友。他说，「我们的原则是保证言论自由、和尽可能避免无效牺牲。如果全民发推就能改天换日，何乐不为？但很显然这并不现实」。</span></p>
+<p><span>对大陆用户来说</span><span>Twitter</span><span>不再安全了吗？也许目前还不是这样，但一个迹象似乎颇为惹眼。<a href="https://www.facebook.com/iyouport/" rel="nofollow"><span>自由港官方主页</span><span>4</span><span>月</span><span>15</span><span>日报道</span></a>，继</span><span>Facebook</span><span>和</span><span>Google</span><span>之后，</span><span> Twitter</span><span>任命了首位大中华区高管。</span></p>
+<p><span>Twitter</span><span>首席执行官</span><span>Jace Dorsey</span><span>发布推文称，公司已经任命</span><span>Kathy Chen</span><span>（陈葵）担任</span><span>Twitter</span><span>大中华区董事总经理（</span><span>Managing Director</span><span>）。</span></p>
+<p><img height="480" width="420" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_1.png?itok=78Hu4d10" alt="" title=""></p>
+<p><span>随后</span><span>KathyChen </span><span>表示</span><span> </span><span>，</span><span>Twitter</span><span>能为国内企业提供产品以及服务的实时信息，并帮助中国企业海外推广，将会为中国企业、创业者、合作伙伴和开发者创造更多价值。中共党喉新华社在</span><span>Twitter</span><span>的英文官方账号对陈葵表示祝贺</span><span>，陈葵回复称「要加强联系」。</span></p>
+<p><img height="411" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_2_32.jpg?itok=iKEJjksI" alt="" title=""></p>
+<p> </p>
+<p> </p>
+<p><span>资料显示，</span><span>KathyChen</span><span>（陈葵）为香港人，上任后办公地点位于香港。其此前曾任微软企业产品及微软云合作伙伴生态战略负责人。</span></p>
+<p><span><a href="https://www.linkedin.com/in/kathy-chen-78b56214" rel="nofollow">根据<span>LinkedIn</span><span>的资料</span></a></span><span>，陈葵从北方交通大学计算机科学专业毕业后，进入二炮第一研究所，当了</span><span>7</span><span>年军人</span><span> …… </span><span>后被选派到北京附近的研究院，担任最機密的飞彈程式设计工作。</span><span>Twitter</span><span>中文圈知名博主</span><span>@wenyunchao</span><span>对此表示：推特应该对由陈葵</span><span> @kathychen2016 </span><span>的中国军人经历及曾与中国公安部合作的职业背景引发的担忧作出必要的解释和保证</span><span>，至少保证该职位不会和中国当局及代理人谈及针对其他用户的内容审查，推特也应该保证该职位无权干预内容审查及触及用户隐私</span><span>。</span></p>
+<p><img height="355" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_3_22.jpg?itok=IIu6oPWF" alt="" title=""></p>
+<p><span>最初透露该消息的是大陆一家亲政府的财经媒体，那篇报道不仅片面</span><span>——</span><span>只字未提</span><span>KathyChen</span><span>（陈葵）的背景，且使用了中国当局对国际互联网公司一贯的面子化橄榄枝态度，将</span><span>Twitter</span><span>和</span><span>Google</span><span>、</span><span>Facebook</span><span>相比较，并暗示硅谷巨头青睐中国市场是「趋势」也是「明智之举」。显然，至少目前为止</span><span>Twitter</span><span>还并没有出现如<a href="https://iyouport.com/archives/55427" rel="nofollow"><span>Facebook</span><span>那般大尺度的逢迎中共审查部门</span></a>的行为，但舆论显示，对未来抱以悲观的情绪为数不少。</span></p>
+<p><span>Twitter</span><span>聘用陈葵的背后究竟还有什么内容</span></p>
+<p><span>Twitter</span><span>今年</span><span>2</span><span>月份公布的财报显示，目前活跃用户为</span><span>3.2</span><span>亿；本财年第一财季用户数量没有增长，这也其自</span><span>IPO</span><span>以来首次出现用户数量无增长。从去年起股价就持续下跌，焦虑可想而知。</span></p>
+<p><span>网友</span><span>lifent</span><span>评论指：「越知名的公司，尤其是上市公司，对招聘人员的背景调查越发仔细，这些都是老外首先搞起来的，相反你要重点考虑</span><span>为什么他们要冒着被人说闲话、甚至谩骂攻击、招致绯闻的风险去聘用像陈葵这样的人</span><span>，是不是有把柄在别人手里，是不是背后有什么交易，联想到</span><span>twitter</span><span>快要不行的业绩，你们可以大胆猜」。</span></p>
+<p><span>这的确有些令人不解，如此明显的共产党背景能得以被美国巨头企业看中，其中应该存在必要的逻辑。包括陈葵的前雇主思科，与中国政府的关系早已不是秘密。更有陈葵的另一个前雇主</span><span>——</span><span>在中美网战中为中国政府方面助力的「北京冠群金辰」。</span></p>
+<p><img height="270" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_4_18.jpg?itok=EkdctUZm" alt="" title=""></p>
+<p><span>2000</span><span>年</span><span>5</span><span>月期间，名为「</span><span>I love you</span><span>」的病毒透过网络散布，造成大陆大型企业服务器重度瘫痪。事隔一年，因中美军机擦撞事件，</span><span>2001</span><span>年</span><span>5</span><span>月初发生了中美黑客大战。中国大陆在推动产业信息化的同时，投入大量的经费用于政府部门的信息化，对于网络资料安全，也投注相当的经费与人力，建构防火墙等基础设施。北京冠群金辰就是在这样的特殊背景下，于</span><span>1998</span><span>年</span><span>7</span><span>月由美国</span><span>CA</span><span>（大陆登记为冠群计算机）与公安部中国金辰合资成立，也是大陆软件业的第一次官方与外资合作，共同开发「网络安全软件」。</span></p>
+<p><span>陈葵在</span><span>1999</span><span>年底被挖角到冠群金辰担任总经理，负责经营大陆的<a href="https://pao-pao.net/article/272" rel="nofollow"><span>「信息安全市场」</span></a>。</span><span>其技术能力和立场可见一斑。</span></p>
+<p><span>Twitter</span><span>中文圈网友的反应是否可以理解？</span></p>
+<p><span>推特网友</span><span>@laosan </span><span>就此发起<a href="https://petitions.whitehouse.gov//petition/investigate-background-regional-ceo-twitter-chen-kui-who-related-ministry-state-security-china" rel="nofollow"><span>白宫请愿</span></a>，要求调查</span><span>Twitter</span><span>大中华区</span><span>CEO</span><span>陈葵的背景，只要十万签名即可让白宫回应，邀请大家签名和转发</span><span>——</span><span>为</span><span>‎</span><span>言论自由、为信息安全。</span></p>
+<p><span>但也有</span><span>Twitter</span><span>中文圈用户认为网友们的反应「过激」了。给出的理由是「推特是美国公司，值得信任，找有可疑背景的人做大中华区总经理也改变不了这个公司基本属性，服务器，技术，政策，都不可能为所谓大中华区的小角色而改变，不明白中文圈人士为何如此惊诧，至于吗？等</span><span>Jack</span><span>和党国勾兑再惊诧好不好？」</span></p>
+<p><span>不过目测显示，这一观点并没有获得足够多的复议。做互联网研究的</span><span>Leon</span><span>认为，即便勾兑了我们也不可能知道。没有证据能显示某位推友因发言被警方骚扰是出于推特提供隐私信息（比如地理位置和验证手机号）。各种法规、商业保护都在拒绝用户的知情。</span></p>
+<p><span>我们使用网络应用服务是免费的，互联网公司依靠广告生存，用户本身是它们的产品，我们的地理位置、使用习惯、爱好倾向等等都是重要商业信息，</span><span>Leon</span><span>继续说道，「对大陆实施多年的网格化维稳，网络用户所在位置很重要、绑定手机相当于把身份证贴在脑门上</span><span>……</span><span>Twitter</span><span>梦想的大中华区市场里那些目标商家，大多依靠中国政府的直接或间接庇护得以生存、发展</span><span>，必要时候它们做出信息交易并不奇怪」。</span></p>
+<p><span>「大陆翻墙网民在推特一直是安全的，因为中国审查部门无法了解到我们的隐蔽性注册信息，也包括搜索记录、私聊记录，或许硅谷巨头会在一定程度上与美国政府合作，但不可能与中国或朝鲜政府合作，这不需要解释。习近平执政以来搞了很多新法律，<a href="https://pao-pao.net/article/246" rel="nofollow"><span>反间谍法</span></a>、<a href="https://pao-pao.net/article/423" rel="nofollow"><span>国安法</span></a>，都是为管制舆论、扼杀政治反对做下的口袋」，</span><span>Leon</span><span>认为，</span><span>早前中国当局顶多使用大量五毛水军干扰舆论，但没可能找得到发言者的具体现实身份，只要用户</span><span>严格区别墙内外的明文注册信息、坚决不使用位置功能，避免与陌生人私聊涉及个人隐私信息的内容</span><span>。</span><span>不过，目前看来这点需要怀疑了。</span></p>
+<p><span>知名推友</span><span>@wenyunchao </span><span>也表示：「我完全不认为中文推特圈一些朋友对陈葵任命的反应是夸张的」。他说，中文推特网友一路被压迫驱赶流亡至此，有夸张的压迫就会有夸张的反应，在夸张的压迫之下，夸张的反应实属正常，也就是说，这是一种特别环境下的正常反应。</span><span>如果装作自己生活在正常的国家来观察网友的反应，那才是不正常的夸张的。</span></p>
+<p><span>反对者认为，陈葵的「职务级别低，相当于地区广告经理，不可能接触到用户隐私信息」。不过推友</span><span>saac</span><span>表示：「这个任命的争议恰好在此，也就是候选者是否对这种敏感地区背景有考量或倾听用户声音的可能」，「另外也不要小看职位不显著的人，当年</span><span>Google </span><span>断腕中国的导火索就是能够访问</span><span>Gmail </span><span>代码的程序员，而不是李开复」。</span></p>
+<p><span>另一位推友</span><span>manmanzhuo</span><span>对此指出：虽然表面上无害，但是她在国安工作过的背景和人脉只有那些，想不往技术部门安插国安的人员都不可能。这些技术人员就不像她那么显眼，却有着巨大的破坏力。</span></p>
+<p><span>反转</span><span>GFW</span><span>的另一面</span></p>
+<p><span>与</span><span>Facebook</span><span>、</span><span>Google</span><span>等一样，</span><span>Twitter</span><span>近年来也在努力开拓中国市场。去年</span><span>3</span><span>月，</span><span>Twitter</span><span>在香港设立办公室，并组建了一支讲中国话、了解中国市场、懂中国文化的中国本地团队。</span><span>8</span><span>月，</span><span>Twitter</span><span>开通了大中华区账号，用中文推广</span><span>Twitter</span><span>服务。</span></p>
+<p><span>此前，</span><span>Twitter</span><span>亚太区副总裁</span><span>Shailesh Rao</span><span>在接受采访时称，因一些其他因素，</span><span>Twitter</span><span>的中国策略并非吸引社交网络用户，而是做中国企业的生意。其去年中国广告客户增长逾</span><span>300%</span><span>，包括华为、联想、新华社、人民日报等。</span></p>
+<p><span>Twitter</span><span>新兴市场销售总监</span><span>Peter Greenberger</span><span>则称，在中国已经占据一定市场份额、未来可预期增量市场有限的中国企业寄希望于挖掘海外市场。</span><span>“</span><span>没有比现在更好的时候了，中国创新公司都希望在全球市场取得自己的一席之地。</span><span>”</span></p>
+<p><span>被中国防火墙（</span><span>GFW</span><span>）封锁的<a href="https://pao-pao.net/article/364" rel="nofollow"><span>海外网络科技媒体泡泡网在去年</span><span>2</span><span>月曾发表报告《</span><span>GFW</span><span>的反转》</span></a>，文章指出，扩张国际市场邀请海外用户使用大陆国产应用，树立所谓</span><span>“</span><span>中国制造新形象</span><span>”</span><span>，是国内热门网络公司近年来的重点攻势。其性质被评论认为是</span><span>“GFW</span><span>的反转</span><span>”——</span><span>将自由区域的用户拉到不自由区域内。</span></p>
+<p><span>做为新生代热门平台的微信从</span><span>2011</span><span>年发布以来增速惊人，但主要用户都来自于大陆，以致国内市场迅速趋近饱和。随即微信将目标转向海外市场，却遇到了来自同类产品</span><span>Line</span><span>、</span><span>WhatsApp</span><span>等的竞争，以致</span><span>2014</span><span>年</span><span>7-9</span><span>月的三个月里，用户增幅达到</span><span>“</span><span>历史新低</span><span>”</span><span>。而海外市场明显阻力不小，主要原因或并非产品本身的相关问题，</span><span>“</span><span>举世闻名</span><span>”</span><span>的中国式网络审查，导致大多使用者不敢将自己的隐私信息放在这些随时可以被政府部门窥视到的软件上。</span></p>
+<p><span>文章指出，或许这就是微信对海外</span><span>IP</span><span>放宽审查管制的主要原因之一</span><span>——</span><span>海外用户可见的部分内容，大陆用户不可见；还有微信自</span><span>5.0</span><span>版本就增加了的</span><span>“</span><span>举报</span><span>”</span><span>按钮，有使用者发现，如果设置为英文版后台，就不会出现这个</span><span>“</span><span>举报</span><span>”</span><span>按钮。</span></p>
+<p><span>但当时的报道没有提及</span><span>国际互联网公司跻身中国市场的热情。其实这也是反转</span><span>GFW</span><span>的一部分</span><span>——</span><span>满足中国当局的审查要求，同时保持中国用户和海外用户的社交关系，一部分海外用户的信息和发布内容由此进入</span><span>GFW</span><span>区域。尤其是香港和台湾的华文网友，应该更多警惕这种现象。</span></p>
+<p><span>更需要指出的是：中共当局对国际热点议题「反恐」的独特理解和处理方式。同时，国际互联网公司<a href="https://iyouport.com/archives/60356" rel="nofollow"><span>纷纷承诺「消除网络涉恐有害信息」</span></a>，于是无法不怀疑中国当局会借「反恐」之由行使扼杀言论之实。<a href="https://iyouport.com/archives/59858" rel="nofollow"><span>去年</span><span>12</span><span>月的乌镇第二届</span><span>“</span><span>世界互联网大会</span><span>”</span><span>上，中国政府特别提到互联网反恐问题</span></a>。</span></p>
+<p><span>中国境内的反恐行动和安防举措一直多有被质疑，很多被当局指称为</span><span>“</span><span>恐怖主义</span><span>”</span><span>的事件没有提供足够信息，第三方对暴力事件细节的核实工作十分困难。中国限制外国记者和国际观察人士独立核实中国官方的说法，而官媒报道往往是这些境内暴力事件的唯一消息来源。<a href="https://iyouport.com/archives/60304" rel="nofollow"><span>更为常态化的是以反恐为由替侵犯人权的网络监管正名。</span></a></span></p>
+<p><span>由于信息严重不透明，做为国际企业（如</span><span>Twitter</span><span>）想查证是很难的，如果中国当局认为某位用户「涉恐」，互联网企业很难拒绝提供隐私数据的要求。</span></p>
+<p><span>「我知道，相关问题讲得越详细，就越有可能带来更多自我审查，但现实走势已足够紧迫，有必要让更多网络用户了解到，舆论热度或许能对局面有所影响。虽然很理想化」，</span><span>Leon</span><span>说。</span></p>
+<p><span>他表示：媒体是不应该有立场的，「再此意义上我不能算纯粹的媒体人，</span><span>我的立场始终是维护言论自由、信息平等，为公民争取免于恐慌的权利</span><span>」。</span></p>
+<p><span>16</span><span>日凌晨，发生在</span><span>Twitter</span><span>中文圈的热点话题能登陆</span><span>Twitter</span><span>话题排行榜吗？</span><span>Leon</span><span>说他也不知道，「<a href="https://iyouport.com/archives/72967" rel="nofollow"><span>没人能了解网络公司的算法，那是商业机密之一</span></a>，对于有碍商机的舆论，</span><span>Twitter</span><span>有无视的权力。大批的观点和态度很可能就此石沉大海，但表达是网民的权利，同时充分的表达及扩散可以让更多网民知情。我们能做的也只有这些了」。</span></p>
+<div> </div></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://pao-pao.net/article/689" target="paopao-mirror">互联网政治：搜索引擎中隐藏着不为人知的逻辑</a>
 </h2>
 <p><p><span>有多少人是在马太效应的影响下确认一个话题为热点的？眼见着「脱敏的」的国产泡沫剧点击量直线上升、耍贫嘴的账号一路蹿红，继而被媒体争相报道，再吸引更多人去搜索、围观，真的有如此多人喜欢它们吗？墙内外平行世界的观感能决定事实的几成？我们能看到的炒作或许只是表面，网络应用在其中所起的作用无法忽视，比如搜索功能。</span><span> </span></p>
@@ -660,39 +710,6 @@
 <div> </div></p>
 <p>
 	<small> ============== 121天前</small>
-</p><h2>
-	<a href="https://pao-pao.net/article/656" target="paopao-mirror">中文舆论场观察年报（上）</a>
-</h2>
-<p><p><span>日前人民网舆情监察室通过官方微信公众号发布了《</span><span>2015</span><span>年互联网舆情分析报告》，其中暴露出很多当局对舆论管控所采取的方法、目前存在的能力弱项和相关预期。很明显它的视野局限于墙内、立场与民间相左，本文将使用不同角度观察，并扩大关注面到墙外，以发现并分析出</span><span>民间的应对缺陷和相关解决方法</span><span>。</span></p>
-<p>一、极权角度：大局势和小变化<span> </span></p>
-<p><span><a href="https://pao-pao.net/article/381" rel="nofollow">运动式净网</a></span>从<span>2014</span>年过渡到<span>2015</span>年后体现出明显的加深、加强和扩大化。从内容大清洗到注册信息监察，从强行推广实名制到大数据监控盯防，从纳税人识别号到社会信用评分，侵犯隐私的黑手愈加深入，然舆论场并没有形成足够的<a href="https://iyouport.com/archives/52441" rel="nofollow"><span>警惕</span></a>。</p>
-<p>更为明显是<span>极权的进化</span>。体现在宣传口上的<span>危机公关</span>，和体现在管制手段上的<span>假性放松</span>加<span>利诱</span>的配合使用，这两点在一定程度上呈现辅成关系。泡泡网自去年起便在多篇舆论场观察报道中揭露过相关细节。</p>
-<p><span>“</span><span>危机公关</span><span>”</span>是指用面子活儿给舆论堵嘴。比如近日的深圳塌陷事件，官媒借用墙内的<span>“</span>双微<span>”</span>平台宣传国务院的重视、深圳市领导层的鞠躬道歉、迅速指出<span>“</span>人祸<span>”</span>、并很快给出了失联人员的明细报告，还大作<span>“</span>头七纪念活动<span>”</span>，这些细节在早前大多是被民间政治反对群体用来做话题的重点。如今极权用堵嘴法配合舆论筛查、加五毛团队渲染，将<span>“</span>建设性反对<span>”</span>群体形式上收归糜下，同时也在一定程度上封堵了真正的反对者可以借用的攻击点。<span>政治反对群体自然不会被其迷惑，实际上已经转向了对建设性反对的抨击</span>，但由于被审查严重阻隔，真正的反对整体上越来越小众，而在中文舆论场的社会人格特质下，<span>极权的进化表象很容易扶持理中思路加速成为舆论主流</span>，<span>从众效应不可忽视</span>。</p>
-<p><span>另，</span><span>“</span><span>假性放松</span><span>”</span><span>危险更大，当局毫不掩饰这点，人民网的舆情年度报告中就直接写明：</span>要管控来自网上的不确定因素，也要适度保留网络舆论的活力，尊重互联网的民意表达。上网能够减少上访、避免上街，已经为多个地方的实践所验证。网络舆论需要的，是在利益关系复杂化、意见表达交响化的今天，守住底线，包容多样，凝聚最大公约数。要针对转型期丰富多彩的社会现实，因势利导，用深化改革和改善民生激活人心，用强力反腐、从严治党挽住人心，用依法治国、社会公正稳定人心。让人民群众得到实实在在的获得感<span>…… </span></p>
-<p>其中<span>“</span><span>不确定因素</span><span>”</span>指的是未经认证的、也就是当局经常提及的<span>“</span>不可控<span>”</span>信源，在统战可控群体的同时打压不可控群体。由于长期被审查压制，大批墙内常驻网民已练就了成熟的<span>“</span>春秋笔法<span>”</span>，包括真正的反对群体也在逐渐介入这一<span>“</span>潮流<span>”</span>，也就是说审查者单从内容上已经难以分辨是否建设性，于是更倾向于<span>以发布源为过滤条件</span>。</p>
-<p><span>“</span><span>上网能够减少上访、避免上街</span><span>”</span>这句话再通俗不过了，本网从很早前起就一直呼吁<a href="https://iyouport.com/archives/50182" rel="nofollow"><span>警惕舆论口水</span></a><span>化、评议表面化和思考程式化的关键弊端</span>，以免为极权所利用。但更严重的是社交网络的环境造成了强大的<span>传播心理</span>，几乎每个活跃账号都是内容生产者，重点考虑的必定是受众反馈，于是当局对口水的<span>假性放松</span>直接培养了受众的口味倾向，但部分真正的反对者尚未意识到这点，风格已形成惯性，短时难以改变，舆论效力严重下降。</p>
-<p><span>“</span><span>利诱</span><span>”</span>指的是对内容的吸引，手段是<a href="https://pao-pao.net/article/474" rel="nofollow"><span>打赏功能和红包功能</span></a>，已经成功地将大部分内容吸附在墙内，墙外中文圈愈见冷清。还是传播心理的作用，跨墙群体在墙外平台保持沉默的同时主动将内容搬运至墙内平台，甚至是微信和群聊这种几乎完全封闭的小圈子里，<span>相当于另一种形式的<a href="https://pao-pao.net/article/364" rel="nofollow"><span>反转</span><span>GFW</span></a></span>，令有深度的观点和分析被严重局限并接受审查者的全面监控，愚蠢而可笑。</p>
-<p>同<span>时粉丝经济</span>的催化也令一些抗争者开始沉迷于转发量、打赏金额，更加顾及市场效应，从而淡化了抗争意识，评议内容实用性严重稀缺。</p>
-<p>二、民间角度：情势走向和弱势解析</p>
-<p><span>1</span>、<span>利益化</span>。表达利益化引发平台依赖。</p>
-<p>表达利益化在较大程度上是当局主张的粉丝经济变现所引发的，利益包括两方面：反馈量（影响力、人脉培养）和打赏收益，前者也是后者的重要价值基础。<span>舆论场变成了人情面子交易的市场</span>，<span>更加强了小圈子生态的牢固性，从立场阵营的孤岛布局细化为利益共同体的原子状态</span>。</p>
-<p>随着经济滑坡，失业潮和创业潮同时膨胀，加之当局对互联网创业前景和成功案例的宣传力度，更多人开始将社交网络视作为掘金圈地的主体渠道，政治舆论被加速削弱。</p>
-<p>近期再度出现<span>收费群聊</span>的消息，群规则中明确写着<span>“</span>拒绝政治话题<span>”</span>，群聊二维码被指向支付宝付费链接，入群者需首先交纳年费。更可笑的是该群宣传文图的推广居然没放过推特等墙外平台，有好奇的网友亲试后反应说该群几乎全天寂静无声，整个群只是个联系人列表，<span>为那些希望形成利益关系的人搭建的平台</span>，群主收取的是中介费。</p>
-<p>此外，以民主为主题（借口）的营销甚至传销形式去年就有曝光，加入者每日要求转发一定数量的民主立场的口水式内容以获取佣金，并鼓励发展下线赚取提成。刷粉、刷阅读量的生意被管制后转入地下继续存在。以上都属于对社交网络的变态利用、对抗争意识的严重稀释。</p>
-<p><span>理论群体从追踪热话到依赖热话，被当局的一举一动所牵制</span>，基本放弃了创造机遇的主动权；被传播效应、影响力追求一叶障目，内容实用性和突破性双低；由于利益的介入，原本就孤立的小共同体进一步分化，随着新关系的形成逐渐淡化了原本被视为关键结盟条件的政治立场共识；无价值的口水泛滥，体会信息轰炸的受众只能依照人际关系亲疏择选支持对象，<span>舆论场粉丝团的圈子式切割</span>痕迹更加明显。</p>
-<p>对平台的依赖就是利益化的结果。<span>微信的功能设计为小圈子社交形式量身打造，公众号犹如手绘的金矿诱惑时政观察者落入封闭营销的陷阱</span>。专业性原本是体现在观察角度上的独树一帜，汇总起来可形成全面而深入的解析阵型，但在利益化基础上的表达和传播，专业性带来的是相关受众圈子的加速封闭，继而变成了<span>话题的分化</span>，在微信依赖和推特排斥微信的双重作用下影响范围高度萎缩。</p>
-<p><span>2</span>、<span>各种层面上的自说自话</span>。从民间各阵营的自说自话，再度分裂成队形和小圈子的自我欣赏，甚至翻墙都没能打破这一原子状态，推特中文圈尤其明显，<span>几乎失去了早前互动互联的积极性</span>，为说话而翻墙、<span>将公开平台的便利互动纳入封闭状态</span>。</p>
-<p>跨墙并将关注主体放在墙外的网友能很简单发现这点：已在推特上出现了很久的消息或创新观点在微信小圈子内传播时，那些几乎每天都有推文更新的用户却经常表现出初次得见的情绪反应，微信群聊之间的传播成为了绝大多数人获取信息的主要渠道，对于墙外内容来说却只能依靠极少数的搬运工来实现传播。而<span>搬运工自身的连接状态也很可能处于圈子形式内</span>，于是整体眼界被高度局限，反过来作用到<span>“</span>为表达而翻墙<span>”</span>的人们身上便出现了可笑的外观：同一个消息或近似的观点在时间线上像水底的气泡一样，不断重复滚动，却互不相连、没有机会碰撞出深度。</p>
-<p><span>3</span>、<span>各种滞后进一步加重</span>。几年前的情况是关于中国的消息总是墙内平台要快于墙外，因为中国当局对媒体和信息的管制令内容输出首先要经由审查的过滤器，墙外中文圈的价值体现在基于墙内信息给出通过自由思考的解读深度。</p>
-<p>但本年的情况发生了<span>逆转</span>，由墙外首先公开，墙内的足量获知和传播被滞后的时间经常高达<span>48</span>小时还多。这并不代表大陆当局对民间信息和外媒的管控有所放松，而恰恰是<span>大陆舆论场高度小圈子化的结果</span><span>——</span>消息依旧是来自于墙内的，但在墙内被严重阻隔，由极少数跨墙传播者代入推特并迅速被墙外独立媒体和时评人发觉，继而转载转述，再由另一种逆向跨墙传播者带回墙内、形成长微博图片或者公众号转发，<span>总时差为上述各环节的运作之和</span>。</p>
-<p>在此基础上的<span>舆论反馈也被加倍滞后</span>，其中更主要的原因是舆论场思考<span>惰性激增</span>，倾向于等待信息被墙外消化了一轮之后再做整合并口水化处理，虽然新意缺失却不影响传播力度，因为有圈子互助加<a href="https://iyouport.com/archives/50182" rel="nofollow"><span>嗜好口水</span></a>的大群受众，反馈的丰富反作用于上述程序的加速固化，便形成了一种规律。</p>
-<p><span>4</span>、<span>反转</span><span>GFW</span>。除了上述中提到的<span>”“</span>内容反转<span>——</span>将墙外公开平台的内容搬到墙内封闭场域，还有早前曾已多次明确过的<a href="https://pao-pao.net/article/364" rel="nofollow"><span>由用户带来的反转</span></a>。随着留学、访学、移民群体的增大，由他们带来的反转更为明显。这一群体虽然已身在国外但受制于既有人际关系，依旧将大陆社交应用置于首选，同时还有可能带动海外新朋友来使用中国产社交软件。</p>
-<p>或许不难理解，华人在海外的文化隔阂令这一群体更多陷入本国人形成的小圈子内，同时与昔日国内亲友的连接变得更加珍贵。于是曾一度广受支持的<span>“</span>早发财早移民，追求自由拿脚投票<span>”</span>只促成了前半句<span>——</span>更多人投入闷声发大财事业中，而后半句也是最重要的移民目的<span>——</span><span>自由，连同抗争力量一起被削弱了</span>，至少一定程度上是如此。</p>
-<p>或因分身乏术，这部分群体大多不是推特活跃用户，他们中的部分表现为倾向于嗜好宫廷戏、并对以相关内容为主的海外非正规媒体渠道给予了重点关注，相当于对早年在国内忍受极权政治暗箱操作的补偿性吸取。同时这一群体也很可能以此嗜好影响自身的国内小圈子，源于留在国内的人对海外生活的渴求、进而形成对移民留学群体的仰慕。</p>
-<p><span>——</span>未完待续<span>——</span></p>
-<div> </div></p>
-<p>
-	<small> ============== 123天前</small>
 </p>
 <table>
     <tr>
