@@ -463,7 +463,7 @@
 <p>举一个最近发生的例子吧，如果你也留心过小粉红事件在推特政治观察者群体内的反馈前后全程，包括相关结论产品传播的全程，便很容易明白本文提供的道理。</p>
 <div> </div></p>
 <p>
-	<small> ============== 98天前</small>
+	<small> ============== 99天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/667" target="paopao-mirror">互联网上的战争：信息战、舆论战、技术战（下）</a>
 </h2>
@@ -636,7 +636,7 @@
 <p><span>——</span>未完待续<span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 108天前</small>
+	<small> ============== 109天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/657" target="paopao-mirror">中文舆论场观察年报（下）</a>
 </h2>
