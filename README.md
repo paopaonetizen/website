@@ -43,7 +43,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/690" target="paopao-mirror">Twitter新任共军经历的中国区董事 中文用户需要警惕什么</a>
 </h2>
