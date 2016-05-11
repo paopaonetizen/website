@@ -173,7 +173,7 @@
 <p><span>16</span><span>日凌晨，发生在</span><span>Twitter</span><span>中文圈的热点话题能登陆</span><span>Twitter</span><span>话题排行榜吗？</span><span>Leon</span><span>说他也不知道，「<a href="https://iyouport.com/archives/72967" rel="nofollow"><span>没人能了解网络公司的算法，那是商业机密之一</span></a>，对于有碍商机的舆论，</span><span>Twitter</span><span>有无视的权力。大批的观点和态度很可能就此石沉大海，但表达是网民的权利，同时充分的表达及扩散可以让更多网民知情。我们能做的也只有这些了」。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/689" target="paopao-mirror">互联网政治：搜索引擎中隐藏着不为人知的逻辑</a>
 </h2>
