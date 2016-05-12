@@ -100,7 +100,7 @@
 <p><span>——</span><span>未完待续</span><span>—— </span></p>
 <div> </div></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/692" target="paopao-mirror">信息分析心理学：证据评估中常见的偏见</a>
 </h2>
@@ -297,7 +297,7 @@
 <p><span>互联网社运依靠的更多是情绪感染力，基础是人际关联。也是当局对异议者使用隔离、打散、污蔑等卑鄙手段的主要逻辑</span><span>——</span><span>削弱至阻断其形成影响的能力。同时，政治反对群体自身的加速分化、极化目前为止很大程度上仍没能进入策略层面，放弃</span><span>Twitter</span><span>回归墙内双微的大批人群之思路更是莫名其妙，这是自主造成的信息不对称和分化。分化后的各阵营间彼此的评价中便能看出，严重缺乏沟通导致的互不理解。</span></p>
 <p> </p></p>
 <p>
-	<small> ============== 42天前</small>
+	<small> ============== 43天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/682" target="paopao-mirror">赛博空间行为心理：你遇到的问题可能不止有语言（上）</a>
 </h2>
