@@ -46,7 +46,7 @@
 <p><span>注</span><span>：</span><span>我们不会着重于提供具体事件的分析结论，那样似乎可以有丰富的出稿量，但价值却是极有限的，我们希望能将方法介绍给你，授人以渔，你可以用它自己去分析，或者判断那些铺天盖地的结论、权威级大师的观点，究竟靠谱几成。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/694" target="paopao-mirror">信息分析心理学：因果认知中的偏见（一）</a>
 </h2>
@@ -649,7 +649,7 @@
 <p>由于基础实力相差悬殊，同时当局又具备超高的收买民间散兵的能力，相比下技术战对民主阵营来说是最难应对的一场战役，见招拆招专注于止损尚且可成为预期目标。</p>
 <p><img height="267" width="290" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/xia_pian_wen_zhong_tu_2_.jpeg?itok=t_cU_dB8" alt="" title=""></p></p>
 <p>
-	<small> ============== 114天前</small>
+	<small> ============== 115天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/666" target="paopao-mirror">互联网上的战争：信息战、舆论战、技术战（上）</a>
 </h2>
