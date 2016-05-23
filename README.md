@@ -48,7 +48,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/695" target="paopao-mirror">信息分析心理学：因果认知中的偏见（二）</a>
 </h2>
