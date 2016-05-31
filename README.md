@@ -78,7 +78,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/701" target="paopao-mirror">诊疗笔记：求极权社会的心理阴影面积（上）</a>
 </h2>
