@@ -50,7 +50,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/702" target="paopao-mirror">诊疗笔记：求极权社会的心理阴影面积（下）</a>
 </h2>
@@ -143,7 +143,7 @@
 <p><span>有些中国式女权主义者的观点给公众带来了歧义，人们认为她们不是在追求平权，而是主张特权</span><span>——</span><span>认为女性应该主导，这就是对女权本身的误解。当下极少有中文写手去批评中国式女权，他们私下表示</span><span>“</span><span>不敢碰</span><span>”</span><span>，如果中国女权主义者带给观察人士是惧怕、避之不及的感受，那恐怕就与平等的追求相去甚远了。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/699" target="paopao-mirror">中国式“思考”和行为方式的由来（二）</a>
 </h2>
