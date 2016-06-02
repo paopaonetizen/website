@@ -321,7 +321,7 @@
 <p><span>——</span><span>未完待续</span><span>—— </span></p>
 <div> </div></p>
 <p>
-	<small> ============== 23天前</small>
+	<small> ============== 24天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/693" target="paopao-mirror">信息分析心理学：局部一致的骗局和不确定性证据</a>
 </h2>
