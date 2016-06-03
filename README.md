@@ -346,7 +346,7 @@
 <p><span>——</span><span>未完待续</span><span>—— </span></p>
 <div> </div></p>
 <p>
-	<small> ============== 25天前</small>
+	<small> ============== 26天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/692" target="paopao-mirror">信息分析心理学：证据评估中常见的偏见</a>
 </h2>
