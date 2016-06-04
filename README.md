@@ -490,7 +490,7 @@
 <p><span>搜索引擎的确令混乱而庞大的信息流变得井然有序，但它也滋生了模糊营销、不公平竞争和现实畸形问题。互联网正急速发展，情境不断更新换代，分析总是滞后的，但只要去思考和应对就应该为时不晚。在极权国家里，民众没有语话权，于是你能做的就只剩下一点了</span><span>——</span><span>在民主实现之前</span><span>放弃国产应用</span><span>。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 30天前</small>
+	<small> ============== 31天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/688" target="paopao-mirror">False news：“敌我识别镜”上阵 大一统专项搜捕将再启动</a>
 </h2>
