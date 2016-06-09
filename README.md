@@ -517,7 +517,7 @@
 <p><span>那么即将在本周末发生的大搜捕中，政治反对者们又会展示哪种战略呢，本网正拭目以待。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 37天前</small>
+	<small> ============== 38天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/684" target="paopao-mirror">赛博空间行为心理：群组极化和隐私“双刃剑”（下）</a>
 </h2>
