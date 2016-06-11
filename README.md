@@ -279,7 +279,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 19天前</small>
+	<small> ============== 20天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/698" target="paopao-mirror">中国式“思考”和行为方式的由来（一）</a>
 </h2>
