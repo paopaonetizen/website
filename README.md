@@ -96,7 +96,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/705" target="paopao-mirror">极权社会的心理阴影：压抑的恶果和被误解的代偿</a>
 </h2>
