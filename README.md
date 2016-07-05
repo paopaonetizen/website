@@ -22,6 +22,40 @@
             </tr>
 </table>
 <h2>
+	<a href="https://pao-pao.net/article/718" target="paopao-mirror">中共“军事文化网络主题论坛”上透露了什么信息</a>
+</h2>
+<p><p><span>谷歌</span><span>“2016</span><span>中国军事文化网络主题论坛</span><span>”</span><span>能看到上百媒体或网站对相关报道通稿的转载，该消息发布于</span><span>6</span><span>月</span><span>15</span><span>号，网络舆论提示关注的时间是</span><span>7</span><span>月</span><span>4</span><span>号，这其间没有更多注意力指向该</span><span>“</span><span>论坛</span><span>”</span><span>相关内容。为什么呢，民间对网络管制已经审蠢疲劳了？不过还是有些值得关注的信息。</span></p>
+<p><span><img height="401" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_1_0.jpg?itok=ubOzSjUb" alt="" title=""></span></p>
+<p><span>研究一下罗援在该论坛上的发言，官媒的报道显示他说了一共</span><span>“</span><span>九点</span><span>”</span><span>（下面灰色字是原文）：</span></p>
+<p><span>1</span><span>、［</span><span>提升网络空间主战场意识，将网络战、舆论战作为</span><span>“</span><span>上甘岭</span><span>”</span><span>战役来打</span><span>］</span><span>——</span><span>这点不新鲜，<a href="https://pao-pao.net/article/354" rel="nofollow"><span>早在一年多前</span></a>，官方军事媒体在不断引用习近平所说</span><span>“</span><span>网络已经成为意识形态的主战场</span><span>”</span><span>这句话的同时，<a href="https://pao-pao.net/article/666" rel="nofollow"><span>舆论战已经被推上了重点</span></a>，民间的态度是对反击不屑一顾，人们认为与愚蠢过招是很掉价的行为。</span></p>
+<p><span>值得注意的是，御用公知们近来在自我宣传方面很是卖力，组建了不少粉丝团模式的微信群，以期利用现实影响力和民众盲目的光环效应，在框架竞争中占据优势。民主革命派一方理论与行动群体依旧脱节，可喜的是后者已有很大进步，但仍显盲目，没能在舆论战中发挥有效反击作用。</span></p>
+<p><img height="319" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_2.jpg?itok=pYEPmsX-" alt="" title=""></p>
+<p><span>2</span><span>、［</span><span>整合各方力量，建立统一领导机制</span><span>……</span><span>搞好顶层设计和组织筹划，进行敌情、舆情分析，选准主攻方向，清晰斗争策略，组织和协调好相关力量，形成一盘棋</span><span>］</span><span>——</span><span>这是在强调有组织的舆论战。</span></p>
+<p><span>中共的舆情分析系统一向比较强劲，甚至能与民主派的意识同步，比如去年的年终总结中，祝华新提出的对网络舆论宣泄的利用（</span><span>“</span><span>多上网能减少上街</span><span>”</span><span>论），在此之前的不到两个月，民主派人士才刚提醒<a href="https://iyouport.com/archives/50182" rel="nofollow"><span>警惕舆论口水化</span></a>、建议反思吐槽的低效，但尚未发挥实际作用。再如，近日北师大传播学院执行院长喻国明提出</span><span>“</span><span>利用网络情绪实现舆论维稳</span><span>”</span><span>的思路，他说：透过问题的解决、透过舆论的应对来争取人心</span><span>……</span><span>（也就是为当局支招，利用情绪化的盲目继续行骗）而几乎与此同时，网络情绪泛滥导致有失策略的现象才刚<a href="https://iyouport.com/archives/80391" rel="nofollow"><span>被民主派纳入议题</span></a>。</span></p>
+<p><img height="343" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_3_0.jpg?itok=UwKaPsu6" alt="" title=""></p>
+<p><span>3</span><span>、［</span><span>建立自己的队伍，组织能征善战的网络空间</span><span>“</span><span>志愿军</span><span>”</span><span>，开放军队院校网络，组织民兵预备役参与，深化军民融合</span><span>］</span><span>——</span><span>这点也不新鲜，不论是<a href="https://pao-pao.net/article/414" rel="nofollow"><span>“</span><span>青年网络志愿军</span><span>”</span></a>、还是</span><span>“</span><span>网警志愿者</span><span>”</span><span>队伍，都已经公开快两年了，从早年的拒绝承认发动五毛水军，到如今的</span><span>“</span><span>鼓励做五毛、自干五</span><span>”</span><span>，这是一种最简单粗暴的反智战术，当局深知民间对五毛概念的认知已经固化，于是干脆不做回避、直接</span><span>“</span><span>洗白</span><span>”</span><span>。</span></p>
+<p><span>4</span><span>、［</span><span>塑造有民族气节的意见领袖、扶植正能量网络大</span><span>V</span><span>，</span><span>“</span><span>用人勿疑疑人勿用</span><span>”</span><span>］</span><span>——<a href="https://pao-pao.net/article/381" rel="nofollow"><span>收编御用大</span><span>V </span></a></span><span>也不是新词，祝华新早在两年多前就有著名的</span><span>“</span><span>给出路</span><span>”</span><span>论，针对体制外中产，他们亲市场化、民主化，有别于体制主流，被体制认为</span><span>“</span><span>存在风险</span><span>”</span><span>。而采取的措施就是一边打压，一面吸附：对于有可能吸附的对象，用祝华新的说法是要尽可能</span><span>“</span><span>给出路</span><span>”</span><span>；对于不可能接受收编者，比如时政漫画作家</span><span>@</span><span>变态辣椒</span><span> </span><span>就会被剥夺</span><span>“</span><span>出路</span><span>”</span><span>。</span></p>
+<p><span>此外，罗援的措辞透露，习近平讲究血统的太子党政治对体制外人士的信任度依旧很低，那些拼命攀附的自干五型公知被民间称为</span><span>“</span><span>夜壶</span><span>”</span><span>毫不过分。</span><br> </p>
+<p><img height="240" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_4_0.jpg?itok=w0WkgQsD" alt="" title=""></p>
+<p><span>5</span><span>、［</span><span>建立自己主导、监控、有影响力的门户网站，对既有网站，为我所用，同时对某些政治倾向有问题的网站要掺沙子，正方向</span><span>］</span><span>——</span><span>前面强调的是对网络空间的占领，后面强调更多的控制所谓门户网站，让它们能主动维护五毛水军的影响力，和当局的专用灌输渠道。</span></p>
+<p><span>“</span><span>占领</span><span>”</span><span>是</span><span>“</span><span>清洗－占领－吸纳</span><span>”</span><span>模型的第二阶段，运动式净网两年多来中共对网络平台的占领层层深化，去年开始已由公开平台<a href="https://pao-pao.net/article/438" rel="nofollow"><span>渗透入微信群聊</span></a>，并从墙内<a href="https://pao-pao.net/article/354" rel="nofollow"><span>蔓延到墙外</span></a>，其结果一方面是加速了舆论的荒漠化，另方面则是迅速分化为官民两个舆论场，将官方舆论孤立架空。</span></p>
+<p><span>罗援提到的</span><span>“</span><span>掺沙子、正方向</span><span>”</span><span>也不是新战略，五毛团队一直多有入侵网站评论，当局有可能将入侵力度更多强化，但它们无法改变的是民间对五毛言论的识别。管制的方向是期望将网络变为尽可能接近现实中的单向灌输，这是违背媒介特性的，当然不可能实现，不过是异想天开。</span></p>
+<p><img height="280" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_5.jpg?itok=cieA7pG2" alt="" title=""></p>
+<p><span>6</span><span>、［</span><span>建立国家和民间正能量的网络文化基金。其主要任务是弘扬正能量，扶持正能量网络大</span><span>V</span><span>，搭建进步网络平台，支持网络传播创新，奖励先进个人和群体</span><span>］</span><span>——</span><span>早前的奖惩机制停留在口头上，基金思路是新出现的，与<a href="https://pao-pao.net/article/650" rel="nofollow"><span>鲁炜主张的</span><span>“</span><span>好网民</span><span>”</span><span>表彰</span></a>相一致。近年来当局开设了不少所谓的扶持计划，领域面向互联网、影视、文学等方面，用利益吸引更多满足意识形态宣传的创作。</span></p>
+<p><span>7</span><span>、［</span><span>稳准狠地打击反动网站和个人，孤立一小撮反华势力。坚决取缔</span><span>“</span><span>反动门户网站</span><span>”</span><span>，汇集整理反动言论，定期公布，形成震慑，组织锄奸队，搜集证据，整理黑名单，或私下警告，或公开示众，关键时刻按图索骥缉拿</span><span>］</span><span>——</span><span>这里提到不止内容还要对网站开启大清洗。</span></p>
+<p><span>近日在<a href="https://github.com/greatfire/wiki/issues/120" rel="nofollow"><span>全球最大的开源项目集散地</span><span> GitHub </span><span>上出现的政治反对帖</span></a>，引起国内外广泛关注，据悉，这是</span><span>2014</span><span>年</span><span>10</span><span>月以来，</span><span>GitHub </span><span>公布的第</span><span>6</span><span>项</span><span>“</span><span>删除特定项目要求</span><span>”</span><span>，此前</span><span>5</span><span>项都来自俄罗斯。从公开报道来看，这也是今年</span><span>3</span><span>月才成立的中国网络空间安全协会第一次</span><span>“</span><span>出手</span><span>”</span><span>。</span><span> GitHub </span><span>全站都开启了</span><span>HTTPS </span><span>协议，导致</span><span> GFW </span><span>无法进行选择性屏蔽。</span></p>
+<p><span>此前，</span><span>2013</span><span>年，</span><span>GitHub </span><span>在中国疑似遭到封锁，其后在许多</span><span> IT </span><span>界名人强烈抗议下网站服务最终恢复正常；</span><span> 2015</span><span>年，中国网络攻击工具对主要提供监控防火墙服务的</span><span>“Greatfire”</span><span>实施</span><span>DDoS</span><span>（分散式阻断服务）攻击，劫持跨边境访问百度、新浪等站点的流量，恶意涌入</span><span>greatfire.org</span><span>，和</span><span> Greatfire </span><span>同时遭受攻击的，还有纽约时报中文网。由于两个项目都将代码放在</span><span> GitHub </span><span>上，</span><span>GitHub </span><span>网站一度瘫痪。</span></p>
+<p><img height="190" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_6.jpg?itok=G6qYn3gm" alt="" title=""></p>
+<p><span>8</span><span>、［</span><span>尽快制定涉军新闻法，建立健康、有序、守法的网络空间秩序。军事新闻和信息要由经过授权的机构和人员发布，对反军乱军言论要坚决取缔，并依法制裁，界定哪些话可以说，哪些话不可以说，说到什么程度，提高斗争的策略水平</span><span>］</span><span>——</span><span>罗援对涉军信息很紧张，不仅源于他的个人身份，也透露<a href="https://iyouport.com/archives/58378" rel="nofollow"><span>习近平主张的大型军改</span></a>后，军中不满信息有所外泄。</span></p>
+<p><span>9</span><span>、［</span><span>注重战法策略运用，营造宽松环境。采用先进技术手段删帖、屏蔽、置顶、沉底，不给反党乱军分子以话语权。集中兵力对反华言论打歼灭战。多用动漫、多媒体等大众喜闻乐见的手段扩大影响面，主动设计议题，设计标题，同时，对网络斗争骨干提供技术支援和必要保障</span><span>］</span><span>——</span><span>依旧强调内容大清洗及其技术支持，还有娱乐化渠道的洗脑，是近年来意识形态宣传的特征之一。</span></p>
+<p><span>中国当局不断通过网络说唱曲和卡通片等加强海外宣传攻势，已引起海外媒体关注。美国《时代》周刊最新一期报道了中国的一个最新的宣传作品说唱曲</span><span>“</span><span>这是中国</span><span>”</span><span>，认为</span><span>“</span><span>这首中国宣传说唱是迄今录制的最令人痛苦的歌</span><span>”</span><span>。《时代周刊》的报道说，</span><span>“</span><span>这是中国</span><span>”</span><span>说唱视频，符合执政的中国共产党在国际上软化自己形象的努力。目前中国的强硬外交政策和国内的人权镇压受到海外强烈批评。</span></p>
+<p><span>近几个月来，与中国政府有联系的音像公司发行了包括描述习近平反腐的卡通片、英语解释的中国五年计划等视频。</span></p>
+<p><img height="267" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_7.jpg?itok=6K_kIo96" alt="" title=""></p>
+<p><span>上述文中使用了很多超链接，指向的是旧文，也就是说，此次</span><span>“</span><span>论坛</span><span>”</span><span>对网络管制没有提出太多新手段的设想，只是程度的加深，民间还是有应对空间的，缺乏的是应对积极性。或有必要提醒的是，在框架竞争热的形势下，改良公知的政治宣传抢先了反对派很多。本网最近在研析传播问题，虽然理论上公知们的路线依旧低效，但它们的行动显示，他们意识到了人际传播的能力，而反对派还没有。不论是<a href="https://pao-pao.net/article/666" rel="nofollow"><span>舆论战、信息战还是技术战</span></a>，民主派都有积极的布置工具和推荐技巧，但必需有人去用，更多的人主动寻找和使用，智慧才能得以发挥。</span></p>
+<div> </div></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://pao-pao.net/article/714" target="paopao-mirror">传播、表达，和公开平台的冷淡</a>
 </h2>
 <p><p><span>信息、观点和议题经常需要不断的重复，</span><span>Don</span><span>说，似乎很多人并不十分关心公开平台上的发布，或者说更倾向于依赖熟人圈子获取，由于圈子间连接强度极弱，造成信息严重不对称，疑问只能通过一遍遍重复来纠正。</span></p>
@@ -631,39 +665,6 @@
 <div> </div></p>
 <p>
 	<small> ============== 95天前</small>
-</p><h2>
-	<a href="https://pao-pao.net/article/683" target="paopao-mirror">赛博空间行为心理：网络论战和身份凸显性的被动局限（中）</a>
-</h2>
-<p><p><span>继续前文的话题。</span></p>
-<p><span>语境还有一个重要的体现在于</span><span>TL</span><span>，当你的时间线上超乎七成的网友都在关注</span><span>AlphaGo</span><span>的时候，如果你想插入「题外话」肯定不会获得常态下的关注程度，哪怕你的话题在其他时段内能显得很重要。这个规律在群聊中也一样。传播信息需要掌握时效，如果偏离既有话题太远便很容易被忽略，新的对话会将你发布的内容上推至很远，稍晚进群的人一般不会仔细翻完所有信息，因为群聊中的价值型信息在一般情况下比重极少。</span></p>
-<p><span>但</span><span>S</span><span>认为这个结论虽然没错但依旧有问题，比如在一个圈子式的群聊中（共同性高的群体），如果插入消息的个体处于圈子边缘，哪怕内容和语境的相关度再高，依旧不会打断原有对话的延续，插入的信息如同不存在。的确有这样的现象，围绕在圈子中心人物周围的既有语境已形成规范的一部分。在群组内建立起来的规范交流方式依赖于社会背景和共享的群组身份，而不是习得的反应，于是圈子边缘的群组身份在此的效应是被动淡化。</span></p>
-<p><span>群组间的权利关系并不影响认知身份的凸显性，而是</span><span>影响身份是否被表达及如何表达</span><span>。</span></p>
-<p><span>如果一个群组成员对本群组是可识别的，而对外群组是不可识别的，那么会因此产生「本群组」的一致行为。你可能会有机会看到这样的状况，一个熟人小圈子中部分成员进入一个对他们来说陌生人比较多的大型群聊后，依旧会保持甚至突出原有的小圈子阵型。利用不同议题甚至是故意而随机地找寻到排外的机会，以此凸显「本群」一致性。</span></p>
-<p><span>如果群成员对于一个强大的外群组是可识别的，那么任何可能带来认可的行为都会被抑制。这是群际关系的一部分，以排他做为凝聚的手段之一。</span></p>
-<p><span>网络论战和规范行为</span><span> </span></p>
-<p><span>互联网交流的特点是缺乏社会背景线索，并且没有广泛共享的规范。于是有研究认为，这种属性的影响增强了网络论战的发生。假设它成立，那么我们应该能感受到这种影响在不同的网络群组中是均匀分布的，但事实显然不是这样，仅在新闻关注群组中的分布就极不均匀。发生率相对较低的网络论战会局限于一些特定的群组，于是上述结论基本是错的</span><span>——</span><span>网络论战实际上是规范的一部分，而不是反规范和放纵的行为。</span><span> </span></p>
-<p><span>C</span><span>说自己进入某政治关注群组的初衷就是观战，因为该群有意拉入了各种政治观点派系中的激进风格代表，每天的主题就是骂仗</span><span>——</span><span>有新闻和观点转入群中，激起各个派系的表达欲望。</span><span>C</span><span>说，「信息本身不是重要的，它只是各方强化自身立场和主旨的媒介」。这种情况下几乎没有沟通的余地，因为各方都是以反驳为目的的表达。</span></p>
-<p><span>或许非规范群组中的网络论战可以理解为人们在尝试为一个群组确立具有竞争性的规范。网络论战的经常发生意味着它对那个群组是正常的，如果发生在不经常论战的群组中，或许表明一个新的具有竞争性的规范正在生成。于是，对于网络论战本身来说，去个体化效应的社会身份解释就完全变成描述性的了，因为规范首先是从观察到的行为中推论出来的，所以不可能宣称一种行为是由于坚持或者不坚持某种规范而生成。</span></p>
-<p><span>还可以有一种解释，来自对网络论战的双重自我意识，它依赖于网络交流中的自我意识和公众性自我意识的不同影响。<a href="https://iyouport.com/archives/64367" rel="nofollow"><span>早前我们解释过</span></a>，公众性自我意识减少时会降低对他人评价的关注程度，相反的，个体自我意识水平的提高会增加对自己的态度、情感和标准的关注。</span></p>
-<p><span>值得注意的是，网络论战中的双重自我意识影响和个体自我意识的常见结果正好相反。个体自我意识会触发对自我的调整过程，在这个过程中人们会尽可能通过宣传和争辩的方式来引导对方形成预期的行为，但对大多数人来说，这是不可能的，也就是我们常见的争辩无解。</span></p>
-<p><span>更可能的解释是，网络论战的发生源自用户自身的目标、动机和需要等因素，比如展示自己的理论派系，挑战反对者的立场或理论派系，以及形成对群组中某些个体的吸引（动机）和促成这种吸引的需要。很明显，从论战的各方角度上看，论战本身很难促进认知，而对于旁观者来说，却能形成一个极佳的观察平台。</span></p>
-<p><span>群组规范和身份凸显性</span></p>
-<p><span>社会身份取决于我们归属的群组，包括现实中的群组（比如工作单位、职务）和抽象群组（一般意义上的政治派系）。网络交流中人们是否遵循规范至少取决于两个因素：</span><span>1</span><span>、是否视觉上互为匿名（视频聊天或者随机发布照片会减弱这一效果）；</span><span>2</span><span>、是否有一个凸显共享的社会身份或个体身份。</span></p>
-<p><span>在视觉匿名条件下，增加群组的凸显性会使个体遵守群组规范，而增加个人身份的凸显性则会使个体背离群组规范。前者是圈子，后者是名流群。</span></p>
-<p><span>当社会身份凸显时，大多数网络交流固有的视觉匿名将会增强社会规范的影响，并由此产生规范的改变。</span><span>这里的关键是，社会的或规范的背景是否支持个人身份或社会身份的凸显性</span><span>。当社会身份凸显时，视觉匿名促使个人遵从群组规范，而当个人身份凸显时，同样的视觉匿名性将减少社会规范的影响，并促使个体坚持自己的规范和标准。</span></p>
-<p><span>M</span><span>是业余影视工作者，他所在的一个群聊近期更换了群主，新群主是位小有名气的导演。</span><span>M</span><span>感觉这位导演蛮有趣，发红包的时候，他要求抢到的人必须表示感谢，没有感谢的群成员会被踢出去。并且这个群聊是要求所有人用「实名</span><span>+</span><span>职业」标注群名片的，也就是凸出了社会身份，几乎所有人都顺应了这一看起来很奇怪的规范。至少</span><span>M</span><span>认为很奇怪，「群太大了，</span><span>500</span><span>人，即便抢到红包也都是几分钱最多几毛钱，随之而来的是几百人刷屏的感谢，外观非常震撼」。当我问起是否有人因为没表示感谢而被踢出去时，</span><span>M</span><span>说目前还没有，但</span><span>M</span><span>自己基本不去抢，他说，入群只是为多认识一些同行，有价值的互动比如商议合作，都会在私聊中进行，群就如一个中介，顺便推销下各家的作品。并且</span><span>M</span><span>强调，不抢红包并不是因为红包太小，而是不喜这种刻意和做作的情感要求。</span></p>
-<p><span>行业群组中经常能见到要求标注</span><span>“</span><span>实名</span><span>+</span><span>单位</span><span>”</span><span>，以便群成员之间互相联络及合作。一个作用是凸显社会身份，减少反规则行为的发生。另一个潜在的用途则是减轻视觉匿名效应，提升交流安全感。</span></p>
-<p><span>规范意识似乎有了，但安全感真的就此获得了吗？或许并没有。近期贾葭失踪事件在部分平台上居于热话前列，有媒体报道，同时失踪的还有新疆党宣新媒体无界新闻网的多位工作人员，但后者之详情一直未见报道。于是在一些媒体群组中会有同行问起，数个相关群组的观察显示，一旦该话题展开便立刻会被叫停：「太敏感了，群里有看不见的人（网警）你们不知道吗」。</span></p>
-<p><span>至少在五个同行群中遭到中断话题的</span><span>K</span><span>认为：大家具有信息安全意识是很好的，但另方面，很多提问者的问题暴露了他们依旧不翻墙，没有加入主动争取消息和言论自由之列，只是在管制的淫威下采取了更严格的自我审查。</span></p>
-<p><span>担心政府监视会显著降低畅所欲言的可能性是肯定的。日前，发表在美国《新闻和大众传播期刊》上的一项研究发现，对大规模监视的广泛认识通过让公民害怕公开发表异议而破坏民主。研究认为，政府的大规模监视项目可能会威胁少数观点的披露，巩固多数意见。研究根据一项随机抽样调查分析后指出，被调查者自我审查意愿的增加可以用对大规模监视的认识来解释。</span></p>
-<p><span>惊人的信息不对称和身份凸显性的被动局限</span></p>
-<p><span>近期最热的话题依旧是</span><span>“</span><span>要求习近平下台</span><span>”</span><span>的那封公开信。虽然被牵涉其中的媒体人贾葭已获释，但现居纽约的异议人士温云超（笔名北风）的家人仍被当局绑架。</span></p>
-<p><span>北风在其推特上说，</span><span>“</span><span>有关方面一直为难我家人，给我施加压力要我承认与公开信有关。他们此前的说法是，已经知道我不是信的作者，但认为是别人写好给我发布的，要我告诉他们是谁写的，怎么给我，如何发布，就不追究我的责任。可我无法承认跟我无关的事情。</span><span>” </span><span>北风表示，当局还威胁要让他在政府部门当司机的弟弟丢掉工作。北风呼吁美国总统奥巴马在下周会晤到访的中国领导人习近平时，能关注他的家人情况，让他们早日获得自由。</span></p>
-<p><span>相关消息被许多国际媒体关注，多日来一直在墙外社交网络上流传，少部分信息经由近距离关系的友人代入墙内，但观察显示，墙内反馈量极低，绝大多数局限在跨墙活跃群体的小范围内。</span><span>S</span><span>表示，在他的观察中，一些长期自称政治反对的网民表达出的不屑一顾态度很奇怪，看起来应该是对北风的被流亡经历一无所知，当初该消息被国际媒体报道的范围与此次不相上下，甚至更大。</span><span>S</span><span>认为，墙的阻隔只是一方面，另方面则是新兴政治反对群体近年来的加速封闭，没能有效扩充队伍和影响，更加之信息监管的日益强悍，这部分群体已被动脱离公众视线，愈发难以获得共情。去年推特中文圈最热的艾未未事件中就已经显示出相关迹象，艾未未的名字同样受困于信息阻隔，墙内外关注程度有天壤之别。</span></p>
-<p><span>互联网社运依靠的更多是情绪感染力，基础是人际关联。也是当局对异议者使用隔离、打散、污蔑等卑鄙手段的主要逻辑</span><span>——</span><span>削弱至阻断其形成影响的能力。同时，政治反对群体自身的加速分化、极化目前为止很大程度上仍没能进入策略层面，放弃</span><span>Twitter</span><span>回归墙内双微的大批人群之思路更是莫名其妙，这是自主造成的信息不对称和分化。分化后的各阵营间彼此的评价中便能看出，严重缺乏沟通导致的互不理解。</span></p>
-<p> </p></p>
-<p>
-	<small> ============== 96天前</small>
 </p>
 <table>
     <tr>
