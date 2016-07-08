@@ -360,7 +360,7 @@
 <p><span>——</span><span>未完待续</span><span>—— </span></p>
 <div> </div></p>
 <p>
-	<small> ============== 42天前</small>
+	<small> ============== 43天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/700" target="paopao-mirror">中国式“思考”和行为方式的由来（三）</a>
 </h2>
