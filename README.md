@@ -57,7 +57,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/715" target="paopao-mirror">你可能误会了的“暴力”和“非暴力”</a>
 </h2>
@@ -197,7 +197,7 @@
 <p><span>毕竟，如上所述，大规模的军事镇压模式，无论对内对外，都与苏军介入匈牙利、布拉格和</span><span>“819”</span><span>没有本质区别，却不再可能重现；无论是<a href="https://pao-pao.net/article/192" rel="nofollow"><span>“</span><span>占中</span><span>”</span><span>时期为之惊恐的香港市民</span></a>，还是未来的中国反抗者，都无需担心，他们面对的是警察的枪支，和普遍的、侵入日常生活和社会空间的国家暴力，也因此，</span><span>在对峙中包含着各种非暴力不合作运动的可能性</span><span>。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 23天前</small>
+	<small> ============== 24天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/707" target="paopao-mirror">极权社会的心理阴影：阻碍型性格和强迫性人格——社会角色的代偿可能</a>
 </h2>
@@ -273,7 +273,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 36天前</small>
+	<small> ============== 37天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/705" target="paopao-mirror">极权社会的心理阴影：压抑的恶果和被误解的代偿</a>
 </h2>
