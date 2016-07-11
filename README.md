@@ -22,6 +22,54 @@
             </tr>
 </table>
 <h2>
+	<a href="https://pao-pao.net/article/719" target="paopao-mirror">互联网人际传播三：改善认知和自我  提升传播效率</a>
+</h2>
+<p><p><span>了解自我的本质和认知的性质，便于形成关于他人的印象，以及管理自己的形象。稍作调整，就能帮你增进人际传播效率。</span></p>
+<p><span>自我概念和自我意识</span></p>
+<p><span>每个人都有一个自我形象，就是你的自我概念，包括优缺点、能力和不足、三观及感受。自我概念至少来自于四个方面：</span></p>
+<p><span>1</span><span>、他人形成并展示出来的有关你的形象</span><span>——</span><span>查理库里提出的</span><span>“</span><span>镜中我</span><span>”</span><span>概念，经常获得积极评价的人会变的自信，反之会变得消极。换个角度说就是，我们可以通过积极的评价他人去促进人际融合（当然不是吹捧，似乎不少人混淆了这两个概念）</span></p>
+<p><span>2</span><span>、你把自己和他人比较后的结论</span><span>——</span><span>中国人很喜欢比较，但使用的是经常是不客观的比较方式，比如攀比，会导致消极、形成错误的认知，更准确的比较方式是与你条件近似的人相比较。</span></p>
+<p><span>3</span><span>、文化习得</span><span>——</span><span>通过老师、家庭、社会灌输的一系列价值观、信仰和处事态度。需要明确的是，哪些习得并不正常，进而如何去反对。本网在<a href="https://pao-pao.net/article/701" rel="nofollow"><span>“</span><span>极权社会心理阴影</span><span>”</span><span>系列</span></a>中有详细分析什么是畸形的文化因素、什么是正常和应需的习得。</span></p>
+<p><span>4</span><span>、解读和评价自己的思想和行为方式</span><span>——</span><span>正如别人对你的印象取决于你的行为，你也会对自己的行为做出反应、解读和评价。现实中很多人缺乏这一步的自我，同时过度重视上诉（</span><span>1</span><span>）中的</span><span>“</span><span>镜中我</span><span>”</span><span>，共同结合为<a href="https://pao-pao.net/article/698" rel="nofollow"><span>他律型社会</span></a>。</span></p>
+<p><span>自我意识是人们对自己的了解程度。理解自我概念的形成是增强自我意识的重要方式，越是了解为什么那样看待自己，就越能了解自己是谁。</span></p>
+<p><img height="258" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_1_43.jpg?itok=wvj8MMW3" alt="" title=""></p>
+<p>约哈里之窗是一种常用的在人际信息交流中构成的知觉模式，它用四个区域展现了不同的自我：</p>
+<p><span>1</span><span>、开放的自我</span><span>——</span><span>代表所有关于你的信息，行为、态度、感受、愿望、动机、想法，你和他人都知道这些信息。开放的自我中开放的程度取决于你所处的环境和交流对象。如果<a href="https://pao-pao.net/article/655" rel="nofollow"><span>社会互信度过低</span></a>，开放部分就会过少，妨碍人际的发展。</span></p>
+<p><span>比如我，在不同平台使用不同的笔名、头像和注册信息，即便是非常要好的朋友也往往记错，除非私下做个标记。不少社群形式需要一些人际权力撑场（</span><span>关于人际权力的概念，下一篇中会专门介绍</span><span>），也就是说需要我在公开平台积累的知名度来体现信誉。我的开放习惯在监控社会是比较好的主动匿名方法，但弊端也很明显。我们需要在安全性和互信程度之间做一个平衡。</span></p>
+<p><span>2</span><span>、盲目的自我</span><span>——</span><span>代表他人知道，而你自己忽略了的自我信息，其中包括一些不太明显的习惯，比如口头语、情绪状况、压抑感、自我保护模式、斗争策略等等。</span></p>
+<p><span>比如我，喜欢用</span><span>“</span><span>于是</span><span>”</span><span>这个口头语，因为对话中我经常下意识带着目的（算是一种职业病吧，心理咨询师的交流特点），目的一般都是自己成熟的观点，也就是说将自己的主张带入话题中。有些朋友就笑我</span><span>“</span><span>对啊，这个你写过的</span><span>”</span><span>，或者抢在我前面说出那些观点。</span></p>
+<p><span>如果盲目的自我比重过大，会令自身陷入被动，但不妨碍简单层级的传播。</span></p>
+<p><span>3</span><span>、隐藏的自我</span><span>——</span><span>包括你对他人隐藏的信息，不论是否与谈话内容有关。就是你在任何沟通中都不想透露的信息。</span></p>
+<p><span>过度暴露和完全隐藏是</span><span>“</span><span>隐藏的自我</span><span>”</span><span>的两个极端，对传播来说都有阻碍。恐怕没谁会喜欢一个毫无神秘感的透明人，或者拒绝信誉交换的自闭者。</span></p>
+<p><span>4</span><span>、未知的自我</span><span>——</span><span>包括你和他人都不知道的关于自己的事实，它有时能通过特殊的环境变化得以检验，还有些信息可以通过个性投射测试或者梦境来透露。但更多的时候，在被发现之前是不了解的，比如有人向你提问或发起挑战时会引发戒心；当你表扬别人的时候也希望得到别人的表扬。</span></p>
+<p><span>更强的自我意识能增进人际传播的质量，试着多倾听他人；与不同的人交往，每个人看待你的方式都有可能不同，可以积累出有价值的、新鲜的看法；增强开放的自我，当你展示自己的同时也输出了亲切。</span></p>
+<p><img height="422" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_2_34.jpg?itok=7NPVhOZY" alt="" title=""></p>
+<p>人际传播中的认知</p>
+<p><span>人际认知是一个连续的过程，各个因素将彼此融合，它包括：通过感官接受的刺激；以某种方式组织这些刺激；解读和评价感知到的事物；储存；回忆。这五个过程互相穿插，你很难明确的切分它们。</span></p>
+<p><span>需要提醒几个关键</span><span>——</span></p>
+<p><span>首先，人们都是根据自己的兴趣选取信息的，尤其网络传播，因为选择主动权完全在个人。你很难简单地将公民社会的发展构想传播给权威性人格，就如不可能用健身资讯去轻易影响一个好吃懒做的人。也就是说，受众面必需有计划。自由港在不同平台的更新是手动完成的，有关切的朋友感觉这样做是不是很辛苦，的确，不过优势在于受众面可掌握，信息供应可以做到有计划的取舍。比如，底层民主派的注意力很有针对性，国际大型议题对他们没有太多吸引力，信息供应需要与中国现实有明显的关联，尤其是与抗争有明显关联，切不可太过理论化。</span></p>
+<p><span>其次，是信息组织。最为通用的原则是</span><span>“</span><span>接近原则</span><span>”</span><span>，这个原则会令你将某种程度上类似的人或事物归为一类，即便有明显且较多的特例也会被忽视，比如同一个群聊里的成员、一个地区的人、一个圈子、同样的宗教信仰等等。同一群体内部也可以出现这样的划分，比如大家都用中文的实名标注，只有你使用英文名，人们在直觉上就不会将你归入</span><span>“</span><span>自己人</span><span>”</span><span>行列。</span></p>
+<p><span>另一种通用方法是创建模型，模型是<a href="https://iyouport.com/archives/45558" rel="nofollow"><span>思维定式，它来自于刻板印象、宣传和经验经历</span></a>。媒体在其中起到了不小的作用，如果读者一看到有关恐袭的消息就同时有伊斯兰教的概念、一看到行骗的消息就同时有注明河南人、一看到碰瓷的消息就读到</span><span>“</span><span>大妈</span><span>”</span><span>这样的措辞，很容易形成下意识的思维定式：伊斯兰教＝恐怖主义、河南人＝骗子、大妈摔倒都是碰瓷</span><span>……</span><span>尤其是跨文化信息，如果完全来自媒体很容易形成刻板印象，比如将新闻中认识到的穆斯林形象，套用到所有穆斯林身上就容易出现误读误解。一位小朋友曾经闹过这样的笑话，看了很多关于德国天体文化的报道，和德国朋友交流时就直接问人家</span><span>“</span><span>德国人是不是不喜欢穿衣服</span><span>”……</span></p>
+<p><span>本网在《<a href="https://pao-pao.net/article/626" rel="nofollow"><span>微妙的舆论引导</span></a>》一文中介绍过媒体措辞引发的弊端，媒体抓取的大多是特性、</span><span> </span><span>特征、特例（新闻价值的一部分是</span><span>“</span><span>典型</span><span>”</span><span>），如果仅引述被宣传的现象为据，有可能造成结论偏僻。尤其是在跨文化议题中，经常出现这种现象。</span></p>
+<p><span>网络人际传播也近似，你希望获得什么样的反馈，就需要注意自己选取什么样的措辞，包括标点符号和表情的使用。比如，惊叹号过多会显得发言者很浮躁、情绪化及缺乏深度；省略号过多会显得自信不足；波折号和括号过多会显得组织能力差，双引号过多显示的是虚伪</span><span>……</span><span>等等。</span></p>
+<p><span>最后有关回忆的阶段，体现了上述阶段的重要性。人们从记忆中检索信息的时候依照的是既有模式，而不是新创建的模式，如果让读者去回忆与自己习惯的思维模式不一致的信息是很困难的，互联网信息嘈杂，一时间看起来有效的传播却有可能并没形成有效的影响。但正是那些与你的习惯思维模式有巨大差异的信息带动了思考，真正的思考运行时，既有模式会得以改变。这就是我们持续鼓励推理型认知的原因。</span></p>
+<p><img height="251" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_3_23.jpg?itok=FaOqwJ4F" alt="" title=""></p>
+<p>错误印象的形成</p>
+<p><span>每个人都有这样的潜意识或隐含的倾向</span><span>——</span><span>即认为个体的某些特征会与其他特征相联系。这就是内隐人格理论。比如甲给人感觉精力旺盛、热情，那么他是愚蠢的还是聪明的呢？大多数人会认为他聪明，虽然没有任何逻辑支持一个热情的人必然聪明。</span></p>
+<p><span>内隐人格理论是一套规则体系，它暗示你哪些性格</span><span>“</span><span>相匹配</span><span>”</span><span>。如果你观察到某些人具有积极的品质，会下意识认为他们的其他品质都是积极的。认识的这种下意识的存在，是为提醒人们，要注意免于去推断那些不存在的特征。</span></p>
+<p><span>另一点就是强烈需求造成的错觉。饥饿的人能迅速从一大堆杂乱的信息中找到有关食物的词汇，这就是认知强化</span><span>——</span><span>它可以引导你看到期望看到的东西。比如你喜欢的人看起来会比讨厌的人更漂亮和聪明，你会夸大和强调自己需要的东西。</span></p>
+<p><span><a href="https://iyouport.com/archives/56723" rel="nofollow">认知</a></span><span>强化会制造另一个有趣的曲解：你会认为某些行为表明他人喜欢你，却仅仅是因为你需要被喜欢，或者你不信任一个人时会认为对方讨厌你。</span></p>
+<p><span>提高印象的准确度</span></p>
+<p><span>成功的人际传播很大程度上取决于你对他人形成印象时的准确性，上述分析了认知形成过程中存在的潜在障碍，为了避免这些障碍的形成，可以用下面的方法来提高认知准确度。</span></p>
+<p><span>1</span><span>、通过逻辑分析和批判性思考来分析你的认知，两个建议：首先认识自己在认知中的角色，<a href="https://iyouport.com/archives/56723" rel="nofollow"><span>你的感情和心理状态会影响你的认知</span></a>，比如同样一部电影，心情好的时候觉得它很搞笑，心情差的时候觉得它平庸无聊；了解自己的偏见，你是否只想知道你喜欢的人的优点、只想知道不喜欢的人的缺点？</span></p>
+<p><span>其次，避免过早的下结论。基于某种观察，形成某种假设，再利用额外的信息和证据去验证自己的假设，很容易造成<a href="https://pao-pao.net/article/670" rel="nofollow"><span>证实者偏见</span></a>，避免过早下结论，试着寻找其他线索去验证结论，指向同一结论的线索越多，做出正确结论的可能性就越大。要特别关注那些会推翻你最初假设的线索。同时支持向他人寻求信息，他人与你的刚才观察角度有可能是不同的，这样可以帮你更全面的看待事物。</span></p>
+<p><span>2</span><span>、检查认知是减少不确定性、提高准确率的另一个途径。认知检查的目标是进一步揭示他人的感受和想法，而不是证明自己最初的判断，以此来减轻误读他人的机会。尽量不要仅凭观察他人的部分言行就去分析他们的感受和想法，这点在互联网交流中尤为重要，很多人习惯于根据一个群体的片段表现就判定其整体属性，在公开平台上显示出的对封闭社群的评价很多时候暴露这方面弊端。</span></p>
+<p><span>总之，更多观察是首要推荐的，网络潜水是观察的好方法，你不一定马上涉足交流，那样有可能令你表现被动；更多涉及不同属性、不同领域的社群，能帮助你掌握舆论场概况，部分社群成员重合度高并无太大障碍，在不同语境环境下，人们的表达是不尽相同的，对个体的观察能通过变换环境来提升准确度。</span></p>
+<p><span>——</span><span>未完待续</span><span>——</span></p>
+<div> </div></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="https://pao-pao.net/article/717" target="paopao-mirror">互联网人际传播：足以提效的“有意识”和舆论场复杂的文化模型</a>
 </h2>
 <p><p><span>人际传播中不仅是个体互相依赖，传播活动中涉及的各种要素也是互相依赖的，每一个元素都与其他元素和整体存在联系：没有信息接收者就谈不上信息源、没有信息源就没有信息本身、没有接收者就不会有反馈</span><span>……</span><span>于是任何一个元素的变化都会引起其他元素随之改变，甚至可以细微到，一个描述方法的改变足以引发严重</span><span>“</span><span>歪楼</span><span>”</span><span>，背离传播初衷。</span></p>
@@ -630,56 +678,6 @@
 <div> </div></p>
 <p>
 	<small> ============== 65天前</small>
-</p><h2>
-	<a href="https://pao-pao.net/article/690" target="paopao-mirror">Twitter新任共军经历的中国区董事 中文用户需要警惕什么</a>
-</h2>
-<p><p><span>上周末，一则消息在</span><span>Twitter</span><span>中文圈引发轰动效应，恐慌、焦虑、冷静分析和怒不可遏，各种态度接踵而来。但对</span><span>Leon</span><span>来说，更多的是纠结。</span></p>
-<p><span>「我不知道该不该跟进这个话题」，</span><span>Leon</span><span>说，「在此之前，有海外社交网络中文用户因发言或传播内容，被中国当局传唤甚至拘留的消息，我都做了淡化处理，强调属于定位监控，</span><span>提醒人们注意</span><span> </span><span>，一定要将墙外注册信息与墙内常用信息做区别处理，避免被加以关联。我希望大陆网民能保住至少一个可信赖的平台、保住拒绝自我审查畅所欲言的习惯，其根本是政治反对的音量不能再被削减了，自由思考的能力不要继续下滑</span><span>」。</span></p>
-<p><span>Leon</span><span>是记者，主要负责互联网相关话题的报道，供应翻墙的中文网民，包括翻墙技术推介、隐私安全维护技巧，以及协助声援因言获罪的网友。他说，「我们的原则是保证言论自由、和尽可能避免无效牺牲。如果全民发推就能改天换日，何乐不为？但很显然这并不现实」。</span></p>
-<p><span>对大陆用户来说</span><span>Twitter</span><span>不再安全了吗？也许目前还不是这样，但一个迹象似乎颇为惹眼。<a href="https://www.facebook.com/iyouport/" rel="nofollow"><span>自由港官方主页</span><span>4</span><span>月</span><span>15</span><span>日报道</span></a>，继</span><span>Facebook</span><span>和</span><span>Google</span><span>之后，</span><span> Twitter</span><span>任命了首位大中华区高管。</span></p>
-<p><span>Twitter</span><span>首席执行官</span><span>Jace Dorsey</span><span>发布推文称，公司已经任命</span><span>Kathy Chen</span><span>（陈葵）担任</span><span>Twitter</span><span>大中华区董事总经理（</span><span>Managing Director</span><span>）。</span></p>
-<p><img height="480" width="420" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_1.png?itok=78Hu4d10" alt="" title=""></p>
-<p><span>随后</span><span>KathyChen </span><span>表示</span><span> </span><span>，</span><span>Twitter</span><span>能为国内企业提供产品以及服务的实时信息，并帮助中国企业海外推广，将会为中国企业、创业者、合作伙伴和开发者创造更多价值。中共党喉新华社在</span><span>Twitter</span><span>的英文官方账号对陈葵表示祝贺</span><span>，陈葵回复称「要加强联系」。</span></p>
-<p><img height="411" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_2_32.jpg?itok=iKEJjksI" alt="" title=""></p>
-<p> </p>
-<p> </p>
-<p><span>资料显示，</span><span>KathyChen</span><span>（陈葵）为香港人，上任后办公地点位于香港。其此前曾任微软企业产品及微软云合作伙伴生态战略负责人。</span></p>
-<p><span><a href="https://www.linkedin.com/in/kathy-chen-78b56214" rel="nofollow">根据<span>LinkedIn</span><span>的资料</span></a></span><span>，陈葵从北方交通大学计算机科学专业毕业后，进入二炮第一研究所，当了</span><span>7</span><span>年军人</span><span> …… </span><span>后被选派到北京附近的研究院，担任最機密的飞彈程式设计工作。</span><span>Twitter</span><span>中文圈知名博主</span><span>@wenyunchao</span><span>对此表示：推特应该对由陈葵</span><span> @kathychen2016 </span><span>的中国军人经历及曾与中国公安部合作的职业背景引发的担忧作出必要的解释和保证</span><span>，至少保证该职位不会和中国当局及代理人谈及针对其他用户的内容审查，推特也应该保证该职位无权干预内容审查及触及用户隐私</span><span>。</span></p>
-<p><img height="355" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_3_22.jpg?itok=IIu6oPWF" alt="" title=""></p>
-<p><span>最初透露该消息的是大陆一家亲政府的财经媒体，那篇报道不仅片面</span><span>——</span><span>只字未提</span><span>KathyChen</span><span>（陈葵）的背景，且使用了中国当局对国际互联网公司一贯的面子化橄榄枝态度，将</span><span>Twitter</span><span>和</span><span>Google</span><span>、</span><span>Facebook</span><span>相比较，并暗示硅谷巨头青睐中国市场是「趋势」也是「明智之举」。显然，至少目前为止</span><span>Twitter</span><span>还并没有出现如<a href="https://iyouport.com/archives/55427" rel="nofollow"><span>Facebook</span><span>那般大尺度的逢迎中共审查部门</span></a>的行为，但舆论显示，对未来抱以悲观的情绪为数不少。</span></p>
-<p><span>Twitter</span><span>聘用陈葵的背后究竟还有什么内容</span></p>
-<p><span>Twitter</span><span>今年</span><span>2</span><span>月份公布的财报显示，目前活跃用户为</span><span>3.2</span><span>亿；本财年第一财季用户数量没有增长，这也其自</span><span>IPO</span><span>以来首次出现用户数量无增长。从去年起股价就持续下跌，焦虑可想而知。</span></p>
-<p><span>网友</span><span>lifent</span><span>评论指：「越知名的公司，尤其是上市公司，对招聘人员的背景调查越发仔细，这些都是老外首先搞起来的，相反你要重点考虑</span><span>为什么他们要冒着被人说闲话、甚至谩骂攻击、招致绯闻的风险去聘用像陈葵这样的人</span><span>，是不是有把柄在别人手里，是不是背后有什么交易，联想到</span><span>twitter</span><span>快要不行的业绩，你们可以大胆猜」。</span></p>
-<p><span>这的确有些令人不解，如此明显的共产党背景能得以被美国巨头企业看中，其中应该存在必要的逻辑。包括陈葵的前雇主思科，与中国政府的关系早已不是秘密。更有陈葵的另一个前雇主</span><span>——</span><span>在中美网战中为中国政府方面助力的「北京冠群金辰」。</span></p>
-<p><img height="270" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_4_18.jpg?itok=EkdctUZm" alt="" title=""></p>
-<p><span>2000</span><span>年</span><span>5</span><span>月期间，名为「</span><span>I love you</span><span>」的病毒透过网络散布，造成大陆大型企业服务器重度瘫痪。事隔一年，因中美军机擦撞事件，</span><span>2001</span><span>年</span><span>5</span><span>月初发生了中美黑客大战。中国大陆在推动产业信息化的同时，投入大量的经费用于政府部门的信息化，对于网络资料安全，也投注相当的经费与人力，建构防火墙等基础设施。北京冠群金辰就是在这样的特殊背景下，于</span><span>1998</span><span>年</span><span>7</span><span>月由美国</span><span>CA</span><span>（大陆登记为冠群计算机）与公安部中国金辰合资成立，也是大陆软件业的第一次官方与外资合作，共同开发「网络安全软件」。</span></p>
-<p><span>陈葵在</span><span>1999</span><span>年底被挖角到冠群金辰担任总经理，负责经营大陆的<a href="https://pao-pao.net/article/272" rel="nofollow"><span>「信息安全市场」</span></a>。</span><span>其技术能力和立场可见一斑。</span></p>
-<p><span>Twitter</span><span>中文圈网友的反应是否可以理解？</span></p>
-<p><span>推特网友</span><span>@laosan </span><span>就此发起<a href="https://petitions.whitehouse.gov//petition/investigate-background-regional-ceo-twitter-chen-kui-who-related-ministry-state-security-china" rel="nofollow"><span>白宫请愿</span></a>，要求调查</span><span>Twitter</span><span>大中华区</span><span>CEO</span><span>陈葵的背景，只要十万签名即可让白宫回应，邀请大家签名和转发</span><span>——</span><span>为</span><span>‎</span><span>言论自由、为信息安全。</span></p>
-<p><span>但也有</span><span>Twitter</span><span>中文圈用户认为网友们的反应「过激」了。给出的理由是「推特是美国公司，值得信任，找有可疑背景的人做大中华区总经理也改变不了这个公司基本属性，服务器，技术，政策，都不可能为所谓大中华区的小角色而改变，不明白中文圈人士为何如此惊诧，至于吗？等</span><span>Jack</span><span>和党国勾兑再惊诧好不好？」</span></p>
-<p><span>不过目测显示，这一观点并没有获得足够多的复议。做互联网研究的</span><span>Leon</span><span>认为，即便勾兑了我们也不可能知道。没有证据能显示某位推友因发言被警方骚扰是出于推特提供隐私信息（比如地理位置和验证手机号）。各种法规、商业保护都在拒绝用户的知情。</span></p>
-<p><span>我们使用网络应用服务是免费的，互联网公司依靠广告生存，用户本身是它们的产品，我们的地理位置、使用习惯、爱好倾向等等都是重要商业信息，</span><span>Leon</span><span>继续说道，「对大陆实施多年的网格化维稳，网络用户所在位置很重要、绑定手机相当于把身份证贴在脑门上</span><span>……</span><span>Twitter</span><span>梦想的大中华区市场里那些目标商家，大多依靠中国政府的直接或间接庇护得以生存、发展</span><span>，必要时候它们做出信息交易并不奇怪」。</span></p>
-<p><span>「大陆翻墙网民在推特一直是安全的，因为中国审查部门无法了解到我们的隐蔽性注册信息，也包括搜索记录、私聊记录，或许硅谷巨头会在一定程度上与美国政府合作，但不可能与中国或朝鲜政府合作，这不需要解释。习近平执政以来搞了很多新法律，<a href="https://pao-pao.net/article/246" rel="nofollow"><span>反间谍法</span></a>、<a href="https://pao-pao.net/article/423" rel="nofollow"><span>国安法</span></a>，都是为管制舆论、扼杀政治反对做下的口袋」，</span><span>Leon</span><span>认为，</span><span>早前中国当局顶多使用大量五毛水军干扰舆论，但没可能找得到发言者的具体现实身份，只要用户</span><span>严格区别墙内外的明文注册信息、坚决不使用位置功能，避免与陌生人私聊涉及个人隐私信息的内容</span><span>。</span><span>不过，目前看来这点需要怀疑了。</span></p>
-<p><span>知名推友</span><span>@wenyunchao </span><span>也表示：「我完全不认为中文推特圈一些朋友对陈葵任命的反应是夸张的」。他说，中文推特网友一路被压迫驱赶流亡至此，有夸张的压迫就会有夸张的反应，在夸张的压迫之下，夸张的反应实属正常，也就是说，这是一种特别环境下的正常反应。</span><span>如果装作自己生活在正常的国家来观察网友的反应，那才是不正常的夸张的。</span></p>
-<p><span>反对者认为，陈葵的「职务级别低，相当于地区广告经理，不可能接触到用户隐私信息」。不过推友</span><span>saac</span><span>表示：「这个任命的争议恰好在此，也就是候选者是否对这种敏感地区背景有考量或倾听用户声音的可能」，「另外也不要小看职位不显著的人，当年</span><span>Google </span><span>断腕中国的导火索就是能够访问</span><span>Gmail </span><span>代码的程序员，而不是李开复」。</span></p>
-<p><span>另一位推友</span><span>manmanzhuo</span><span>对此指出：虽然表面上无害，但是她在国安工作过的背景和人脉只有那些，想不往技术部门安插国安的人员都不可能。这些技术人员就不像她那么显眼，却有着巨大的破坏力。</span></p>
-<p><span>反转</span><span>GFW</span><span>的另一面</span></p>
-<p><span>与</span><span>Facebook</span><span>、</span><span>Google</span><span>等一样，</span><span>Twitter</span><span>近年来也在努力开拓中国市场。去年</span><span>3</span><span>月，</span><span>Twitter</span><span>在香港设立办公室，并组建了一支讲中国话、了解中国市场、懂中国文化的中国本地团队。</span><span>8</span><span>月，</span><span>Twitter</span><span>开通了大中华区账号，用中文推广</span><span>Twitter</span><span>服务。</span></p>
-<p><span>此前，</span><span>Twitter</span><span>亚太区副总裁</span><span>Shailesh Rao</span><span>在接受采访时称，因一些其他因素，</span><span>Twitter</span><span>的中国策略并非吸引社交网络用户，而是做中国企业的生意。其去年中国广告客户增长逾</span><span>300%</span><span>，包括华为、联想、新华社、人民日报等。</span></p>
-<p><span>Twitter</span><span>新兴市场销售总监</span><span>Peter Greenberger</span><span>则称，在中国已经占据一定市场份额、未来可预期增量市场有限的中国企业寄希望于挖掘海外市场。</span><span>“</span><span>没有比现在更好的时候了，中国创新公司都希望在全球市场取得自己的一席之地。</span><span>”</span></p>
-<p><span>被中国防火墙（</span><span>GFW</span><span>）封锁的<a href="https://pao-pao.net/article/364" rel="nofollow"><span>海外网络科技媒体泡泡网在去年</span><span>2</span><span>月曾发表报告《</span><span>GFW</span><span>的反转》</span></a>，文章指出，扩张国际市场邀请海外用户使用大陆国产应用，树立所谓</span><span>“</span><span>中国制造新形象</span><span>”</span><span>，是国内热门网络公司近年来的重点攻势。其性质被评论认为是</span><span>“GFW</span><span>的反转</span><span>”——</span><span>将自由区域的用户拉到不自由区域内。</span></p>
-<p><span>做为新生代热门平台的微信从</span><span>2011</span><span>年发布以来增速惊人，但主要用户都来自于大陆，以致国内市场迅速趋近饱和。随即微信将目标转向海外市场，却遇到了来自同类产品</span><span>Line</span><span>、</span><span>WhatsApp</span><span>等的竞争，以致</span><span>2014</span><span>年</span><span>7-9</span><span>月的三个月里，用户增幅达到</span><span>“</span><span>历史新低</span><span>”</span><span>。而海外市场明显阻力不小，主要原因或并非产品本身的相关问题，</span><span>“</span><span>举世闻名</span><span>”</span><span>的中国式网络审查，导致大多使用者不敢将自己的隐私信息放在这些随时可以被政府部门窥视到的软件上。</span></p>
-<p><span>文章指出，或许这就是微信对海外</span><span>IP</span><span>放宽审查管制的主要原因之一</span><span>——</span><span>海外用户可见的部分内容，大陆用户不可见；还有微信自</span><span>5.0</span><span>版本就增加了的</span><span>“</span><span>举报</span><span>”</span><span>按钮，有使用者发现，如果设置为英文版后台，就不会出现这个</span><span>“</span><span>举报</span><span>”</span><span>按钮。</span></p>
-<p><span>但当时的报道没有提及</span><span>国际互联网公司跻身中国市场的热情。其实这也是反转</span><span>GFW</span><span>的一部分</span><span>——</span><span>满足中国当局的审查要求，同时保持中国用户和海外用户的社交关系，一部分海外用户的信息和发布内容由此进入</span><span>GFW</span><span>区域。尤其是香港和台湾的华文网友，应该更多警惕这种现象。</span></p>
-<p><span>更需要指出的是：中共当局对国际热点议题「反恐」的独特理解和处理方式。同时，国际互联网公司<a href="https://iyouport.com/archives/60356" rel="nofollow"><span>纷纷承诺「消除网络涉恐有害信息」</span></a>，于是无法不怀疑中国当局会借「反恐」之由行使扼杀言论之实。<a href="https://iyouport.com/archives/59858" rel="nofollow"><span>去年</span><span>12</span><span>月的乌镇第二届</span><span>“</span><span>世界互联网大会</span><span>”</span><span>上，中国政府特别提到互联网反恐问题</span></a>。</span></p>
-<p><span>中国境内的反恐行动和安防举措一直多有被质疑，很多被当局指称为</span><span>“</span><span>恐怖主义</span><span>”</span><span>的事件没有提供足够信息，第三方对暴力事件细节的核实工作十分困难。中国限制外国记者和国际观察人士独立核实中国官方的说法，而官媒报道往往是这些境内暴力事件的唯一消息来源。<a href="https://iyouport.com/archives/60304" rel="nofollow"><span>更为常态化的是以反恐为由替侵犯人权的网络监管正名。</span></a></span></p>
-<p><span>由于信息严重不透明，做为国际企业（如</span><span>Twitter</span><span>）想查证是很难的，如果中国当局认为某位用户「涉恐」，互联网企业很难拒绝提供隐私数据的要求。</span></p>
-<p><span>「我知道，相关问题讲得越详细，就越有可能带来更多自我审查，但现实走势已足够紧迫，有必要让更多网络用户了解到，舆论热度或许能对局面有所影响。虽然很理想化」，</span><span>Leon</span><span>说。</span></p>
-<p><span>他表示：媒体是不应该有立场的，「再此意义上我不能算纯粹的媒体人，</span><span>我的立场始终是维护言论自由、信息平等，为公民争取免于恐慌的权利</span><span>」。</span></p>
-<p><span>16</span><span>日凌晨，发生在</span><span>Twitter</span><span>中文圈的热点话题能登陆</span><span>Twitter</span><span>话题排行榜吗？</span><span>Leon</span><span>说他也不知道，「<a href="https://iyouport.com/archives/72967" rel="nofollow"><span>没人能了解网络公司的算法，那是商业机密之一</span></a>，对于有碍商机的舆论，</span><span>Twitter</span><span>有无视的权力。大批的观点和态度很可能就此石沉大海，但表达是网民的权利，同时充分的表达及扩散可以让更多网民知情。我们能做的也只有这些了」。</span></p>
-<div> </div></p>
-<p>
-	<small> ============== 66天前</small>
 </p>
 <table>
     <tr>
