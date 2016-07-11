@@ -68,7 +68,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/717" target="paopao-mirror">互联网人际传播：足以提效的“有意识”和舆论场复杂的文化模型</a>
 </h2>
@@ -398,7 +398,7 @@
 <p><span>——</span><span>未完待续</span><span>—— </span></p>
 <p><img height="480" width="341" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/wen_zhong_tu_3.jpeg?itok=ETgXhX6f" alt="" title=""></p></p>
 <p>
-	<small> ============== 40天前</small>
+	<small> ============== 41天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/704" target="paopao-mirror">诊疗笔记：求极权社会心理阴影面积——健康的人格、缺陷及缺陷的形成</a>
 </h2>
