@@ -68,7 +68,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/717" target="paopao-mirror">互联网人际传播：足以提效的“有意识”和舆论场复杂的文化模型</a>
 </h2>
@@ -546,7 +546,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 49天前</small>
+	<small> ============== 50天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/698" target="paopao-mirror">中国式“思考”和行为方式的由来（一）</a>
 </h2>
