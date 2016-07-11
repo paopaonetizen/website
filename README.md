@@ -68,7 +68,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/717" target="paopao-mirror">互联网人际传播：足以提效的“有意识”和舆论场复杂的文化模型</a>
 </h2>
