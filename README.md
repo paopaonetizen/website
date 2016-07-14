@@ -328,7 +328,7 @@
 <p><span>不同的社会角色都戴着相同的、严肃认真的面具，而这面具最重要的意义就在于隐藏和抵消内心的缺陷综合症。如果不能认识和鉴定这些事件背后的心理动机，</span><span> “</span><span>转折点</span><span> ”</span><span>则有可能会成为一种错觉。</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 40天前</small>
+	<small> ============== 41天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/706" target="paopao-mirror">极权社会的心理阴影：物质主义的由来、恶意愚蠢和攻击性冷漠</a>
 </h2>
