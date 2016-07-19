@@ -64,7 +64,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/720" target="paopao-mirror">互联网人际传播四：细节技巧和四步策略给传播增值</a>
 </h2>
