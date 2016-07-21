@@ -22,6 +22,60 @@
             </tr>
 </table>
 <h2>
+	<a href="https://pao-pao.net/article/723" target="paopao-mirror">警惕微妙的劝导术：影响力强大的措辞和想象中的“美女”</a>
+</h2>
+<p><p>文字是如何让政治宣传和大众劝导获得力量的？</p>
+<p><span>一种事物的描述方式和一个行为的表达方式会指导人们的思维、匡正人们对信息的认知反应。宣传者描述一个事物，给其打上标签，下个定义，做为信息的接收者只要认可了这种界定，那么在进入辩论之前就已经达成前期劝导了。</span></p>
+<p><span>两千多年西塞罗就已经认识到这个简单的劝导规则，西塞罗说，他之所以能帮罗马那些臭名昭著的谋杀者们顺顺当当地洗脱罪名，主要原因之一是他有辩论的能力，那些极其可耻的恶行</span><span>“</span><span>并非犯罪</span><span>”</span><span>，而是德高望重的善行</span><span>——</span><span>受害者才是应该被千刀万剐的恶棍。</span></p>
+<p><span>上世纪三十年代的研究发现，宣传者喜欢使用那些放在上下文语境中褒贬模糊的词语，比如：一个</span><span>“</span><span>更善良、更温和</span><span>”</span><span>的人、让我们将国家变得再度</span><span>“</span><span>强大</span><span>”</span><span>起来、钱能买得到的</span><span>“</span><span>最好</span><span>”</span><span>的东西、我们必须支持我们的</span><span>“</span><span>勇敢、为自由而战</span><span>”</span><span>的战士</span><span>……</span><span>没有人会去反对善良、温和、强大，以及为自由而战，但在某些具体语境中，它将带有令人鄙视的含义。想象一下，维稳者对维权者宣传</span><span>“</span><span>善良温和</span><span>”</span><span>，川普说</span><span>“</span><span>让我们的国家再度强大</span><span>”</span><span>，卖习近平语录的广告说</span><span>“</span><span>这是钱能买到的最好的东西</span><span>”……</span></p>
+<p><span>以</span><span>1968</span><span>年尼克松在竞选中关于越战的言辞为例，他承诺要在越南取得</span><span>“</span><span>光荣的和平</span><span>”</span><span>。这个词条究竟意味着什么？对某些人来说，光荣的和平指的是即刻从越南撤军，结束这场不公平的战争，而对另一些人来说，这句话则是意味着要战斗，直到美国取得无条件胜利。其真正的意思只能任凭听者自己去诠释，但毫无疑问，尼克松给越战确立了正确的目标。</span></p>
+<p><img height="344" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_1_4_0.jpg?itok=-_eIGPB3" alt="" title=""></p>
+<p>政治标签的威力</p>
+<p><span>南海仲裁结果出炉之前，中国当局以强烈的口吻宣传其乃</span><span>“</span><span>废纸一张</span><span>”</span><span>，意味：我不认可你的合法性，就可以不尊重你的判定，你也不能拿我怎么样。甚至宣称南海仲裁厅</span><span>“</span><span>是违法建筑，应予以拆除</span><span>”</span><span>。这种流氓口气并非仅仅是气急败坏歇斯底里，它恰恰能对那些比较无知的民众产生标签化前期劝导。同时佐以爱国主义洗脑基础，其效果不容忽视。</span></p>
+<p><img height="480" width="270" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_2_4_0.jpg?itok=HpBVJRaP" alt="" title=""></p>
+<p><span>图2  注：</span><span>中国政府制作的海报</span><span>）</span></p>
+<div><span>下图是南海仲裁结果出炉后，中国官方宣传机构的措辞：继续强调菲律宾是</span><span>“</span><span>违法行为、非法诉求</span><span>”</span><span>，</span><span>“</span><span>不具备合法性</span><span>”——</span><span>将单方面否定伪造为理所当然</span><span>；指责美国的做法是</span><span>“</span><span>投机</span><span>”</span><span>，但不提自己的立场，而是提醒</span><span>“</span><span>国际社会高度警惕</span><span>”——</span><span>劝导策略之一：将</span><span>“</span><span>我的观点</span><span>”</span><span>变成</span><span>“</span><span>我们的观点</span><span>”</span><span>，虚构共识。</span><span>可对照我们<a href="https://iyouport.com/archives/80702" rel="nofollow"><span>在前文中分析的</span><span>“</span><span>四步策略</span><span>”</span></a>。</span></div>
+<p> </p>
+<p><img height="167" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_3_4_0.jpg?itok=5gG5DUhu" alt="" title=""></p>
+<p><span>（图3 注：</span><span>南海仲裁结果出炉后，中国官方宣传机构的措辞</span><span>）</span></p>
+<p> </p>
+<p><img height="454" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_4_2_0.jpg?itok=V_64sMPe" alt="" title=""></p>
+<p><span>（图4  注：</span><span>四个</span><span>“</span><span>不</span><span>”</span><span>字的排比句，深红色背景暗示情绪</span><span>）</span></p>
+<p> </p>
+<p><span>下图为中国官媒发布的国防部新闻发言人杨宇军的记者会消息，看措辞：</span><span>“</span><span>不论仲裁结果如何，将坚定不移捍卫国家主权</span><span>”——</span><span>没有人会反对捍卫</span><span>国家主权</span><span>，但仲裁结果判定中国在南海不享有主权，也就是说南海在其强调的</span><span>“</span><span>捍卫</span><span>”</span><span>范围之外。另，纠纷</span><span>“</span><span>不会</span><span>影响</span><span>中国在南海的主权和权益</span><span>”</span><span>，它用的是</span><span>“</span><span>影响</span><span>”</span><span>而不是损伤或者剥夺，仲裁结果不论如何这句话都能成立。最后那句话，</span><span>“</span><span>中国</span><span>军队</span><span>将坚定不移捍卫国家主权</span><span>”</span><span>，用</span><span>军队</span><span>一词暗示备战，随后又强调</span><span>“</span><span>维护和平稳定</span><span>”</span><span>，也就是不要战争，最后又说</span><span>“</span><span>应对各种威胁挑战</span><span>”</span><span>，那还是不惜一战。究竟战还是不战？主战和反战的双方读者会各自读出不同的结论。</span></p>
+<p><span>注意这段文字是发布于习近平定调之前。习言论：</span><span>19:02</span><span>分，人民日报：</span><span>16:31</span><span>分。</span></p>
+<p><span>当局之所以如此措辞，源于其对稳定的需求（也就是对冲突的担忧）很强烈，但又不希望自己被视为灰溜溜的输家，这种时候</span><span>双关语</span><span>是最佳的选择。众所周知，如果中国既不宣战、也不退出国际海洋公约，那只能意味着接受南海仲裁结果，不论其强调什么、主张什么。</span></p>
+<p><span>民主派视这些宣传为滑稽和出洋相，但它确实有效果，在仲裁结果出炉后，陆续有多位中国网友在不同平台爆料称，自己的微信朋友圈被</span><span>“</span><span>爱国者</span><span>”</span><span>刷屏了。</span><span>12</span><span>日晚间，中国社交网络上瞬间出现了许多短视频，分析指，都是旧素材拼接的结果，有武警跑步的镜头，还有很多</span><span>93</span><span>阅兵前夕运输武器的场面，但还是引来了很多人的激动，却少有人质疑</span><span>——</span><span>即便南海开战也用不上陆军啊？</span></p>
+<p><span>一位记者朋友观察后表示，那些爱国人士中多数平日不怎么关注时政，却在此时被民族主义情绪刺激得跃跃欲试</span><span>……</span><span>理论上看，中国当局的政治宣传是很标准的路数，特别是在中国老百姓政治意识和相关知识水平平均不高的情况下，这种宣传足够产生一定效应。</span></p>
+<p><img height="153" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_5_11.jpg?itok=N5FuXwr0" alt="" title=""></p>
+<p><span>（图5  注：</span><span>中共官媒报道，国防部新闻发言人杨宇军就南海演训活动答记者问</span><span>）</span></p>
+<p><span>对标签的利用在政治宣传中非常常见。希特勒将德国经济问题解释成</span><span>“</span><span>赤字威胁</span><span>”</span><span>和</span><span>“</span><span>犹太人的问题</span><span>”</span><span>，从而得以动员德国民众。反堕胎的群体称自己的主张</span><span>“</span><span>倾向于生命</span><span>”——</span><span>谁会和生命做对呢？支持堕胎的人则称自己是</span><span>“</span><span>倾向于选择</span><span>”——</span><span>谁会反对拥有选择权呢？战争支持者口中的</span><span>“</span><span>低强度冲突</span><span>”</span><span>，你要将它乘以十，才有可能接近真实的损失状况；而反战群体则说，</span><span>“</span><span>把我们被装入裹尸袋的</span><span>儿女们</span><span>带回家</span><span>”</span><span>。</span></p>
+<p><span>政客在诠释社会问题和编造国事日程时会使用诸如社会主义初级阶段、国家／民族特色、改革开放、稳步崛起、加强、进展、主动性、以及各种高大上短语。曾经有一本书名为《语言：控制的主要途径》，作者是美国人，是写给共和党人的，教他们如何</span><span>“</span><span>像牛顿一样说话</span><span>”</span><span>。该作者将那些双关语汇集成册，并每年给公众人物使用到的最狡猾、最自相矛盾的语言颁奖。如果收集的是中国领导人的措辞，一本书肯定不够用。</span></p>
+<p><span>你可能会觉得自己根本没有仔细品读那些措辞，甚至有验实证明排版误错也不至于影响理解（就是这句话的样子），怎么可能被这些细节影响到呢？这里需要强调的是，大多数影响不会经由人的意识，正相反是在绕避你的意识，着重于潜意识中的习惯、印象和思维模型，如此方可达成目的。</span></p>
+<p><span>奥维尔在知名小说《</span><span>1984</span><span>》中戏剧性地描述了词语的宣传力量：</span></p>
+<p><span>“</span><span>重写不仅是为英格苏克的忠实追随者们的世界观、心理习惯提供适宜的表达方式，更是为了使得一切其他思考方式无处立足。即使人们永永远远采用新说法，而旧说法被遗忘在脑后时，异端思想就会如其字面意义那般不可思议</span><span>。”</span></p>
+<p><span>当人们意识到，事实上奥威尔在第二次世界大战期间的职务，是为亲英派编写用以在印度广播的宣传文案时，《</span><span>1984</span><span>》这部小说便获得了骇人的新内涵。</span></p>
+<p><img height="258" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_6_6.jpg?itok=yOcAFyMH" alt="" title=""></p>
+<p>劝导术的使用</p>
+<p><span>祝华新把统战说成</span><span>“</span><span>给出路</span><span>”</span><span>，暗示编外者提意见是</span><span>“</span><span>没有出路的</span><span>”</span><span>；维稳者对群体事件喊话说</span><span>“</span><span>理性</span><span>”</span><span>，而不是说</span><span>“</span><span>克制</span><span>”</span><span>，这里面的微妙区别也不难理解。铺垫同样是重要的一部分，管制会先抓几个大</span><span>V</span><span>嫖娼上央视，摆出杀鸡道场；维稳会先布局几百上千荷枪实弹的武警，形成威胁。恐怖分子在策反人质的时候就用这个路子：先让你深信自己肯定会死在这里，而且肯定不可能痛痛快快死，当这个过程达到了目的，忽然给你点好处、表现出心疼你，温言软语，还假装偷偷摸摸的帮你弄点水和食物，当你感恩了，他们就给你暗示一个</span><span>“</span><span>活路</span><span>”</span><span>，再给点时间</span><span>“</span><span>让你思考</span><span>”</span><span>。</span></p>
+<p><span>语言的本质会如影随形地出现在人们的生活当中，它被人们的下意识用来对各种信息划分归类，也正因此，</span><span>语言具有强大的劝服力量</span><span>。当人们在用</span><span>“</span><span>一个</span><span>90</span><span>后的小女孩怎么可能颠覆国家政权</span><span>”</span><span>这句话刷屏的时候，赵威的标签就确立了。但当时谁也无法预测事态会如何发展，只是从直觉上认为这样的标签不妥，比如</span><span>“</span><span>是不是看不起年轻人？或者看不起女人？</span><span>”</span><span>但在普通时政关注者心目中便形成了一个稳固的形象，此后不论是<a href="https://pao-pao.net/article/719" rel="nofollow"><span>内隐人格的生成</span></a>、<a href="https://iyouport.com/archives/80801" rel="nofollow"><span>性侵传闻的舆论轰动</span></a>，还是<a href="https://iyouport.com/archives/80827" rel="nofollow"><span>理性化怪圈</span></a>，都建立在这个标签上。</span></p>
+<p><span>人们很容易按照某个事件或某种情境已有的标签去行事。但措辞和标签对人们世界观的影响也能延伸到其他情境中，</span><span>“</span><span>适当的时候</span><span>”</span><span>便形成自我劝服。</span></p>
+<p><img height="349" width="480" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_7_3.jpg?itok=w_D9yn8C" alt="" title=""></p>
+<p>想象中的美女</p>
+<p><span>曾经有一些实验证明，</span><span>“</span><span>魅力女人</span><span>”</span><span>能影响男人们的言行。马克</span><span>.</span><span>斯耐特等心理学研究者做过这样的实验：实验中的男人们自愿参加一个叫自由交往的调查，每个男人和另一个房间里的女人被分为一组，规定所有人只能通过电脑用文字交谈，每个男人手上有一张</span><span>“</span><span>对面女人</span><span>”</span><span>的照片，并让他们信任这张照片的确就是即将跟自己聊天的女人。一半被试手上的照片是一位性感十足的魅力女人，而另一半被试手上的则是一位相貌平平的普通女人。</span></p>
+<p><span>接下来，认为自己在和一位美丽女人交流的男性被试，反映出幽默可人、八面玲珑等吸引力元素，而另一半认为自己与相貌平平的女人交流的男性被试，则更多表现出比较干涩的应付。更有趣的是，与前者那些男性被试聊天的女性，也表现出女人最闪光的特色，比如温情、自信、活波可爱等特征，这些特征是被对面的男性激发出来的。换言之，</span><span>期待造就了</span><span>“</span><span>现实</span><span>”</span><span>。</span></p>
+<p><span>心理学者的口头禅之一就是：自我实现预言效应，比如一个孩子经常被老师骂笨、蠢、一无是处，他很可能真的会变蠢变笨，如果一个姑娘总是被夸漂亮，她慢慢就会出现漂亮女人才有的习惯，比如高傲、喜欢打扮和自拍等等（这里并没有对美女的不敬，请不要误会）。</span></p>
+<p><span>上述一直在强调措辞和标签的宣传作用，但词语并不只是用来欺骗和伪装现实的。游刃有余地在思维中处理、操控文字和概念是人类的特性，人们可以在脑海中创造性地解决问题。考虑到人类思维的灵活性，任何事物都可以有很多称呼方式，</span><span>这种灵活度为颠覆宣传者的企图提供了关键方法</span><span>：当我们被告知一个定义时，可以大胆地反问：为什么要这样措辞？有没有其他释义可以更好的诠释这个议题？通过从不同角度观察事件，更深入地思考，从而得到明确的认知，决胜千里。</span></p>
+<p><span>最后提醒注意的是，</span><span>词语的前期劝导不可小视</span><span>，人们使用的称谓和标签往往定义、甚至创造了整个社会现实。对现实的种种解释将指导人们的思想情感和想象，影响人们的行为。希特勒的宣传部长约瑟夫</span><span>·</span><span>戈培尔对语言的力量有很准确的描述：</span></p>
+<p><span>“</span><span>通过使用足够多的重复和心理暗示，要劝导人们相信一个正方形就是一个圆圈，并非没可能。一个正方形和一个圆圈归根结底是什么呢？区区词语而已，而词语是可以被塑造的，直到它们为人的想法披上伪装的外衣。</span><span>”</span></p>
+<p><span>——</span><span>未完待续</span><span>—— </span></p>
+<p><img height="480" width="347" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_8_2.jpg?itok=eVZ3OneU" alt="" title=""></p>
+<p><span>（图8  注：</span><span>时政漫画家巴丢草作品</span><span>——“</span><span>九段线</span><span>”</span><span>，巧妙的使用网络语言</span><span>“</span><span>药丸</span><span>”</span><span>（要完的谐音）改造了官方的政治宣传作品</span><span>“</span><span>一点都不能少</span><span>”</span><span>，网络用语</span><span>“</span><span>药不能停</span><span>”</span><span>暗示要发疯。有很好的宣传效果</span><span>）</span></p>
+<p><img height="480" width="469" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_9_.jpg?itok=mVwM5emr" alt="" title=""></p>
+<p><span>（图9  注：</span><span>“</span><span>九段线</span><span>” </span><span>中国政府宣传图原图</span><span>）</span></p></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="https://pao-pao.net/article/722" target="paopao-mirror">警惕微妙的劝导术：互联网上的认知吝啬鬼和理性化怪圈</a>
 </h2>
 <p><p><span>似乎存在一个困境：一方面，我们追求自由的表达、充分的探讨和思想交锋，认为这样能帮助我们做出一个公正高明的决定；另方面，做为</span><span>“</span><span>认知吝啬鬼</span><span>”</span><span>，我们又往往没能全力以赴地参与探讨决策，不但没对信息做出严格的思考和审查，反而过分依赖简单的、来自权威渠道的劝导，和有限的推理。于是，漫不经心的宣传和深思熟虑的劝导，充斥着舆论场。</span></p>
@@ -704,32 +758,6 @@
 <div> </div></p>
 <p>
 	<small> ============== 62天前</small>
-</p><h2>
-	<a href="https://pao-pao.net/article/695" target="paopao-mirror">信息分析心理学：因果认知中的偏见（二）</a>
-</h2>
-<p><p><span>继续前文。</span></p>
-<p><span>与偏好因果近似的，人们还习惯于把其他团体、国家或政府的行为解释成有统一指挥的或既定计划的有意而为，分析人员经常会对此估计过高，因为如此解释会显得更有故事性、连贯甚至精彩。反过来便是，这样的结论会导致分析人士对猜想性预测抱有不切实际的自信。</span></p>
-<p><span>意外事故、失误、巧合、好心办坏事、执行不力、半官僚机构间互相扯皮等等一系列因素在影响着事件的最终结果，它们的存在意味着现实世界是无序的，事件发生的原因更多是随机结果而非计划内。</span><span>媒体追求的新闻价值也就是故事性，要求它们对政治行为强拉硬拽地做出解读。很遗憾，不少事件只有当回忆录和政府文件公开之后，人们才能在历史的视角下得到完整的故事</span><span>。</span></p>
-<p><span>这种可以称之为职业性偏见的东西在跨国议题研究中有可能后果严重，分析者容易出现三种常见错误：</span><span>1</span><span>、如果他国政府行为的原因在不断变化或存在前后不一致的价值观、完全的误解或失策，那么对其行为的预期可能就会落空；</span><span>2</span><span>、从他国政府的个别言论或展开的行动中，得出事关重大的结论可能不保险，要考虑到这些言论有可能是个人、而非集中指挥的产物；</span><span>3</span><span>、太多阴谋论，忽略了领导人的软弱、犹豫不决，或者是利益集团政治博弈的产物，而后者是可利用的</span><span>……</span></p>
-<p><span>时政研究人士最好不要把媒体的</span><span>“</span><span>创作</span><span>”</span><span>当成可靠凭据。</span></p>
-<p><span>“</span><span>同一性谬误</span><span>”</span></p>
-<p><span>如果无法对共变关系进行系统分析，而且似乎同时存在着几种可能的因果解释，那么人们经常会使用一条简单的检验规则</span><span>——</span><span>即用因果解释之间的相似性去判断因果关系。比如体量大的人走起路来声音肯定大、身材好的人跳舞一定很优美等等，涉及物理属性的判断，这种推理通常是靠谱的，但是时政分析可不这么简单。</span></p>
-<p><span>如果你认为经济问题主要是经济原因造成的、大事件一定会有大背景、小事件不可能影响历史进程</span><span>……</span><span>你就掉入了</span><span>“</span><span>同一性谬误</span><span>”</span><span>。虽然如此解释能让叙述看起来更连贯、更具逻辑和说服力，但肯定不能指望它与事实相符。</span></p>
-<p><span>5</span><span>月</span><span>2</span><span>号在人民大会堂举行的那场红歌演唱会让</span><span>56</span><span>朵金花在接下来的几天内都处于舆论热点，把</span><span>“</span><span>二次文革</span><span>”</span><span>搬上标题的媒体估计不止一两家，这正是依照因果相似性进行推理的倾向，且总是与文章开头提到的</span><span>“</span><span>集中指挥幻觉</span><span>”</span><span>相伴相随（甚至有人认为是统一部署的</span><span>“</span><span>文革试演</span><span>”</span><span>）。</span><span>这两种偏见的普遍存在说明了为什么阴谋论具有极大的说服力</span><span>。阴谋论往往用于解释看似没有重大原因的重大影响，比如</span><span>“</span><span>就像奥斯瓦尔德那种小人物也能改变历史？那也太离谱了</span><span>”</span><span>。与刺杀肯尼迪造成的后果相比，奥斯瓦尔德宣称的动机太微不足道，在很多人看起来无法达到连贯一致的叙述标准</span><span>……</span><span>如果诸如失误、事故、个人反常行为等</span><span>“</span><span>微小</span><span>”</span><span>原因都能造成重大后果，那就意味着重大事件背后有很多随机性原因存在，而非全盘计划内。</span></p>
-<p><span>当然，大多数时评人都不大认同一般意义上的阴谋论，也就是，专业分析人士的偏见可能不会以阴谋论这种低端形式表现出来，但它也真的潜移默化的影响了人们的判断。在分析因果时，经常能见到的是，将事件归因为人们有意而为或可预见的影响，然后强拉硬拽出诸多</span><span>“</span><span>背景</span><span>”</span><span>，不承认偶然性因素的存在。</span></p>
-<p><span>推测需要将所有可能性列举出来，并分析各自概率，凭借想象力敲定结论不是专业分析人士的作为。有人认为自己的语气越自信、公信力就能越高，除非是在普遍不思考的社会里，否则只能成为笑话。</span></p>
-<p><span>“</span><span>相关关系</span><span>”</span><span>有时也具欺骗性</span></p>
-<p><span>利用共变关系的统计测量被称为相关关系</span><span>——</span><span>即如果某一事件的存在意味着另一事件也存在，我们就说这两件事是相关的；如果某一变量发生变化必然会引起另一变量发生变化，那么这两个变量之间就是相关的。假设，</span><span>a</span><span>和</span><span>b</span><span>是同一个原因引起的，虽然不能证明</span><span>a</span><span>直接引起</span><span>b</span><span>，但</span><span>a</span><span>和</span><span>b</span><span>有共变关系、在时间上</span><span>a</span><span>总是紧随着</span><span>b</span><span>，人们经常就会推论：</span><span>a</span><span>是</span><span>b</span><span>的原因。比如政府一推出什么法律，官媒总会</span><span>“</span><span>杀鸡</span><span>”</span><span>，抓几个</span><span>“</span><span>典型案例</span><span>”</span><span>出来。</span></p>
-<p><span>再比如，经济状况恶化导致政治反对上升、国内矛盾激化可能会促使政府在外交上采取冒险行动、以实力为后盾的谈判更有效等等假定，都是基于变量间关系的直觉判断。大多时候这些假定是正确的，却很少能受到系统观察和统计分析的检验。</span></p>
-<p><span>对他人和政府一般行为方式的假定是大量分析工作的基础，但问题在于，人们还可以随意引用互相矛盾的规律去解释、预测或证明类似情况下出现的不同行为</span><span>。比如，</span><span>“</span><span>欲速则不达</span><span>”</span><span>与</span><span>“</span><span>当断不断反受其乱</span><span>”</span><span>就是互相矛盾的警语，当它们被分头使用时，两者的道理都能说得通，可放在一起就会显得很愚蠢，再比如，</span><span>“</span><span>绥靖助长侵略</span><span>”</span><span>与</span><span>“</span><span>妥协才能达成协议</span><span>”</span><span>，是另外一组互相矛盾的说辞。</span></p>
-<p><span>你可以用</span><span>“</span><span>一切取决于</span><span>……”</span><span>句式来辩解，是否使用它，是直觉处理信息和系统性分析的区别，添加上诉限定条件是为有见地的分析工作的特征，因此</span><span>添加的频率也彰显了分析工作的严谨程度。</span></p>
-<p><span>当然不否定暗箱政治的复杂性，分析封闭程度过高的国家和政府时往往缺乏必要的数据、时间甚至兴趣，但至少应该大致了解需要掌握些什么，才能判断信息之间是否存在联系。这显然不能靠人们的直觉本能来完成，直觉只能帮你挑一个自己觉得好玩的结论去信任。</span></p>
-<p><span>某逻辑即便蒙对了十次、百次，也不代表它就是真理，但如今最常见的状况却是一个特色级观点或一套理论就能撑住一个时评人甚至媒体的长盛不衰，只能体现其本身和其受众的思路保守固化。</span></p>
-<p><span>最后还是要鼓励分析人士</span><span>积极接触不同的思维模型</span><span>，因为每一种思维模型都有其优势和弊端。尤其在官僚体制的现实中，意见一致的压力是所有偏见无法化解的基础原因，人们害怕不一样的思考遭到排斥而不敢言，结果只能直接抹杀价值。秉持批判性思考才有可能让合理性解释最终都能出现。</span></p>
-<p><span>注</span><span>：</span><span>我们不会着重于提供具体事件的分析结论，那样似乎可以有丰富的出稿量，但价值却是极有限的，我们希望能将方法介绍给你，授人以渔，你可以用它自己去分析，或者判断那些铺天盖地的结论、权威级大师的观点，究竟靠谱几成。</span></p>
-<div> </div></p>
-<p>
-	<small> ============== 71天前</small>
 </p>
 <table>
     <tr>
