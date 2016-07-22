@@ -74,7 +74,7 @@
 <p><img height="480" width="469" typeof="foaf:Image" src="https://pao-pao.net/sites/pao-pao.net/files/styles/large/public/tu_9_.jpg?itok=mVwM5emr" alt="" title=""></p>
 <p><span>（图9  注：</span><span>“</span><span>九段线</span><span>” </span><span>中国政府宣传图原图</span><span>）</span></p></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/722" target="paopao-mirror">警惕微妙的劝导术：互联网上的认知吝啬鬼和理性化怪圈</a>
 </h2>
