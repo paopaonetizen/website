@@ -421,7 +421,7 @@
 <p><span>《<a href="https://pao-pao.net/article/683" rel="nofollow"><span>网络论战和身份凸显性的被动局限</span></a>》</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 20天前</small>
+	<small> ============== 21天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/709" target="paopao-mirror">极权主义和威权主义的区别——当下公共讨论中频发的谬误</a>
 </h2>
