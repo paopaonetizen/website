@@ -121,7 +121,7 @@
 <p><span>——</span><span>未完待续</span><span>——</span></p>
 <div> </div></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="https://pao-pao.net/article/721" target="paopao-mirror">警惕微妙的劝导术：政治宣传和大众劝导——你可能没意识到的信息陷阱</a>
 </h2>
